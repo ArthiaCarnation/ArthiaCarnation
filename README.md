@@ -10,6 +10,9 @@ mind her goofy body or blur features cause i adjust a lot to make it right and p
 <p align="center"> 
 <img width="350" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/6a7e4998-a980-45a4-bb7b-fa447c8859f4" alt =![24-Jun-16-02-02-06-01]>
 </p>
+<p align="center"> 
 Wip model, she looks more matured here but ill adjust more 
+</p>
+<hr>
 
 
