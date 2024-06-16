@@ -13,6 +13,15 @@ mind her goofy body or blur features cause i adjust a lot to make it right and p
 <p align="center"> 
 Wip model, she looks more matured here but ill adjust more 
 </p>
+FAN ART 
+<p align="center"> 
+<img width="350" src =https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/50d1a5fa-98a2-460c-9f6e-5785b694f65d alt=![1000905405]>
+  Commissioned
+</p>
+<p align="center"> 
+<img width="350" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/fcb26454-a635-4af3-8caf-a66a8c45db37"alt=![1000906744]>
+  FROM NOX!!
+</p>
 <hr>
 
 
