@@ -1,6 +1,5 @@
 # WATCH MY PROGRESS
 ## DONT TAKE REF/INSPO/COPY without my permission
-### whisp on me on pt or chat me on disc: ventireelwife for more info
 ARTHIA PROGESS 6/05/2023, https://docs.google.com/document/d/1wBdXhBk2eQbA9E1O0kaiypLBxa3pdEedJDQXsvM2sRs/edit?usp=sharing
 <p align="center"> 
               <img width="450" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/f82c7e53-6468-4ff9-a935-856169e1f8e2" alt =![1000906742]>
