@@ -5,4 +5,5 @@
 guys please gimme ideas before i go insane, this is her fifth redesign and i cant make up my mind🙏🙏
 mind her body or blur features cause i adjust a lot to make it right and probly will adjust more 
 GIMMEE IDEASS HUHUHU
-whisp on me on pt 
+whisp on me on pt or chat me on disc ventireelwife
+🙏
