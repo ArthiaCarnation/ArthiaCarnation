@@ -2,7 +2,7 @@
 ## DONT TAKE REF/INSPO/COPY without my permission
 ARTHIA PROGESS 6/05/2023, https://docs.google.com/document/d/1wBdXhBk2eQbA9E1O0kaiypLBxa3pdEedJDQXsvM2sRs/edit?usp=sharing
 <p align="center"> 
-              <img width="450" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/f82c7e53-6468-4ff9-a935-856169e1f8e2" alt =![1000906742]>
+              <img width="450" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/31d0b490-4e34-47e9-adab-94371f141063" alt =  ![1000906748]>
 </p>
 guys please gimme ideas before i go insane, this is her fifth redesign and i cant make up my mind🙏🙏
 mind her goofy body or blur features cause i adjust a lot to make it right and probly will adjust more, i flip her 24/7
