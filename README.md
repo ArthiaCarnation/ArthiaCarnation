@@ -1,11 +1,10 @@
 # WATCH MY PROGRESS
- watching me suffer/raging
+ suffer/raging
 ## DONT TAKE REF/INSPO/COPY without my permission
 ARTHIA PROGESS since 6/05/2023 https://docs.google.com/document/d/1wBdXhBk2eQbA9E1O0kaiypLBxa3pdEedJDQXsvM2sRs/edit?usp=sharing
 UPDATING THIS EVERYDAY
 <p align="center"> 
-              <img width="450" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/fa9250f7-094a-428b-9aee-d2866b00aa28" alt =![1000906782]>
-
+              <img width="450" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/287228c5-ecb6-4e7d-bf86-7ee5f35e2c66" alt =![1000906789]>
 </p>
 ( inspiration : Vala Afk journey , Rose Quartz , Angela Collector Skin mlbb , Floryn Mlbb , Aurora Mlbb )
  mind her body, shes tall like very tall 7'1 😲😲 I HATE LINEART AAAA i usually just do rendering
