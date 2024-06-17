@@ -4,12 +4,11 @@
 ARTHIA PROGESS since 6/05/2023 https://docs.google.com/document/d/1wBdXhBk2eQbA9E1O0kaiypLBxa3pdEedJDQXsvM2sRs/edit?usp=sharing
 UPDATING THIS EVERYDAY
 <p align="center"> 
-              <img width="450" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/0261d055-df93-409e-bcec-0b1df383001d" alt = ![1000906760]>
+              <img width="450" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/8ea2a514-4303-4750-b8d9-665f8b8ea808" alt =  ![1000906780]>
 </p>
-guys please gimme ideas before i go insane, this is her fifth redesign and i cant make up my mind🙏🙏
-mind her goofy body or blur features cause i adjust a lot to make it right and probly will adjust more, i flip her 24/7
 ( inspiration : Vala Afk journey , Rose Quartz , Angela Collector Skin mlbb , Floryn Mlbb , Aurora Mlbb )
-i swear she would look more lively when she has colors she doesnt have dead eyes :<<
+ mind her body, shes tall like very tall 7'1 😲😲 somethings wrong with her
+
 <p align="center"> 
 <img width="350" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/6a7e4998-a980-45a4-bb7b-fa447c8859f4" alt =![24-Jun-16-02-02-06-01]>
 </p>
