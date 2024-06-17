@@ -2,7 +2,7 @@
  watching me suffer/raging
 ## DONT TAKE REF/INSPO/COPY without my permission
 ARTHIA PROGESS since 6/05/2023 https://docs.google.com/document/d/1wBdXhBk2eQbA9E1O0kaiypLBxa3pdEedJDQXsvM2sRs/edit?usp=sharing
-UPDATING THIS 24/7
+UPDATING THIS EVERYDAY
 <p align="center"> 
               <img width="450" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/0261d055-df93-409e-bcec-0b1df383001d" alt = ![1000906760]>
 </p>
