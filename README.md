@@ -24,13 +24,13 @@ Remains before : Sun symbol , height , Coat , long sleeves , Star on his chest ,
   <p align="center"> 
 Adds : symbol of Arthia creation on upper forehead , More details on his staff and Sun halo
    <p align="center"> 
-Lore title change: The unborn god of Sun / Light / Law and Order 
+change lore title: The unborn god of Sun / Light / Law and Order 
 <p align="center"> 
 Seven Redesign: ( inspired by Hanako tbhk , Norman Tpn , Venti Gi)
  <p align="center"> 
 Changes : more details on the clothes
   <p align="center"> 
-Remains : brown hair , green eyes , short hair , long sleeves and vase
+Remains : dadk brown hair , green eyes , short hair , long sleeves 
    <p align="center"> 
 Add: Symbol of a pen
 <p align="center"> 
@@ -39,6 +39,8 @@ Kenzo Redesign: inspired by ???
 Changes: more details on clothes and head accessories 
 <p align="center"> 
 Add : lotus symbol, throat / between collarbone
+ <p align="center"> 
+  change lore title : God of beauty / Judgment / Perfection / Principal
 <p align="center"> 
 I would post my wips here before I upload them on TikTok so I would be motivated
 
