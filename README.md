@@ -14,6 +14,34 @@ UPDATING THIS EVERYDAY
 <p align="center"> 
 Wip model, she looks more matured here but ill adjust more 
 </p>
+Plans: 
+<p align="center"> 
+Arven Redesign : (inspired by harith mlbb, Cassandee afk journey, Fushi to your eternity)
+ <p align="center"> 
+ Changes : White hair , yellow eyes , Hair up 
+ <p align="center"> 
+Remains before : Sun symbol , height , Coat , long sleeves , Star on his chest , Staff
+  <p align="center"> 
+Adds : symbol of Arthia creation on upper forehead , More details on his staff and Sun halo
+   <p align="center"> 
+Lore title change: The unborn god of Sun / Light / Law and Order 
+<p align="center"> 
+Seven Redesign: ( inspired by Hanako tbhk , Norman Tpn , Venti Gi)
+ <p align="center"> 
+Changes : more details on the clothes
+  <p align="center"> 
+Remains : brown hair , green eyes , short hair , long sleeves and vase
+   <p align="center"> 
+Add: Symbol of a pen
+<p align="center"> 
+Kenzo Redesign: inspired by ???
+<p align="center"> 
+Changes: more details on clothes and head accessories 
+<p align="center"> 
+Add : lotus symbol, throat / between collarbone
+<p align="center"> 
+I would post my wips here before I upload them on TikTok so I would be motivated
+
 <p align="center"> 
 FAN ART 
 <p align="center"> 
