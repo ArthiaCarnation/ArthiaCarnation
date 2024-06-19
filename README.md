@@ -2,7 +2,7 @@
  suffer/raging
 ## DONT TAKE REF/INSPO/COPY without my permission
 ARTHIA PROGESS since 6/05/2023 https://docs.google.com/document/d/1wBdXhBk2eQbA9E1O0kaiypLBxa3pdEedJDQXsvM2sRs/edit?usp=sharing
-UPDATING THIS EVERYDAY
+UPDATING THIS EVERYDAY , wont post for 2 days since im somewhere i dont hsve time 
 <p align="center"> 
               <img width="450" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/287228c5-ecb6-4e7d-bf86-7ee5f35e2c66" alt =![1000906789]>
 </p>
@@ -30,7 +30,7 @@ Seven Redesign: ( inspired by Hanako tbhk , Norman Tpn , Venti Gi)
  <p align="center"> 
 Changes : more details on the clothes
   <p align="center"> 
-Remains : dadk brown hair , green eyes , short hair , long sleeves 
+Remains : dark brown hair , green eyes , short hair , long sleeves 
    <p align="center"> 
 Add: Symbol of a pen
 <p align="center"> 
