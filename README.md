@@ -55,6 +55,8 @@ FAN ART
 <img width="350" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/fcb26454-a635-4af3-8caf-a66a8c45db37"alt=![1000906744]>
   <p align="center"> 
   FROM NOX!!
+   <p align="center"> 
+    theres more its on the docs
 </p>
 <hr>
 
