@@ -2,9 +2,9 @@
  suffer/raging
 ## DONT TAKE REF/INSPO/COPY without my permission
 ARTHIA PROGESS since 6/05/2023 https://docs.google.com/document/d/1wBdXhBk2eQbA9E1O0kaiypLBxa3pdEedJDQXsvM2sRs/edit?usp=sharing
-UPDATING THIS EVERYDAY , wont post for 2 days since im somewhere i dont hsve time 
+UPDATING THIS EVERYDAY 
 <p align="center"> 
-              <img width="450" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/287228c5-ecb6-4e7d-bf86-7ee5f35e2c66" alt =![1000906789]>
+              <img width="450" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/8728d3b4-9532-4785-9234-7502f8130ac2" alt =![1000907071]>
 </p>
 ( inspiration : Vala Afk journey , Rose Quartz , Angela Collector Skin mlbb , Floryn Mlbb , Aurora Mlbb )
  mind her body, shes tall like very tall 7'1 😲😲 I HATE LINEART AAAA i usually just do rendering
