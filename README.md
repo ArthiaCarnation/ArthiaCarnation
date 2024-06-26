@@ -47,16 +47,32 @@ I would post my wips here before I upload them on TikTok so I would be motivated
 <p align="center"> 
 FAN ART 
 <p align="center"> 
-<img width="350" src =https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/50d1a5fa-98a2-460c-9f6e-5785b694f65d alt=![1000905405]>
+<img width="300" src =https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/50d1a5fa-98a2-460c-9f6e-5785b694f65d alt=![1000905405]>
   <p align="center"> 
   Commissioned
 </p>
 <p align="center"> 
-<img width="350" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/fcb26454-a635-4af3-8caf-a66a8c45db37"alt=![1000906744]>
+<img width="300" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/fcb26454-a635-4af3-8caf-a66a8c45db37"alt=![1000906744]>
   <p align="center"> 
   FROM NOX!!
    <p align="center"> 
-    theres more its on the docs
+  <img width="300" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/27c549a6-f7f7-4a43-bb9b-1f16aa66435a" alt= ![Screenshot_10]>
+    <p align="center"> 
+  <img width="300" src =https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/2a5faf53-d49b-498c-ab6f-556bf89e77c4 alt= ![Screenshot_11]>
+       <p align="center"> 
+        FROM AUV
+  <p align="center"> 
+   <img width="300" src =https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/4b2f889e-8a60-419c-a029-0a3001b18425 alt=![Screenshot_7]>
+     <p align="center"> 
+       FROM REXXX
+        <p align="center"> 
+   <img width="300" src=https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/c35af195-07f3-43c8-a6df-faed105854d0 alt=  ![Screenshot_12]>
+   <p align="center"> 
+    FROM OYA
+    <p align="center"> 
+     <img width="300" src=https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/fb09756d-4318-441e-9c9f-9f4a90d7441c alt= ![Screenshot_9>
+      <p align="center"> 
+FROM MIKO
 </p>
 <hr>
 
