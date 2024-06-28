@@ -16,6 +16,10 @@ Wip model, she looks more matured here but ill adjust more
 </p>
 Plans: 
 <p align="center"> 
+ <img width="350" src= "https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/6575616c-dab5-45cb-b969-c64df73507cb" alt= ![1000907324]>
+ <p align="center"> 
+  lowkey looks like xiaoz His HAIR I SUPPOSED TO BE THE "SPIKE OF THE SUN"THATS WHY I MADE IT LIKE THAT ALSO I WAS LOOKING AT HARITH HAIR
+<p align="center"> 
 Arven Redesign : (inspired by harith mlbb, Cassandee afk journey, Fushi to your eternity)
  <p align="center"> 
  Changes : White hair , yellow eyes , Hair up 
