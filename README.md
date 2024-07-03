@@ -4,7 +4,7 @@
 ARTHIA PROGESS since 6/05/2023 https://docs.google.com/document/d/1wBdXhBk2eQbA9E1O0kaiypLBxa3pdEedJDQXsvM2sRs/edit?usp=sharing
 UPDATING THIS EVERYDAY 
 <p align="center"> 
-              <img width="450" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/af36a1b2-1b97-4925-8560-ac9c009676b8" alt = ![1000907120]>
+              <img width="450" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/46ec1f16-5eee-4126-9bbe-397734d0d8c4" alt = ![1000907477]>
 </p>
 ( inspiration : Vala Afk journey , Rose Quartz , Angela Collector Skin mlbb , Floryn Mlbb , Aurora Mlbb )
  mind her body, shes tall like very tall 7'1 😲😲 I HATE LINEART AAAA i usually just do rendering
@@ -16,7 +16,7 @@ Wip model, she looks more matured here but ill adjust more
 </p>
 Plans: 
 <p align="center"> 
- <img width="350" src= "https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/a74150dd-3d74-4bc2-ad55-e91c04153768" alt= ![1000907440]>
+ <img width="350" src= "https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/143e447a-e973-41c9-9545-dbd40748951f" alt= ![1000907476]>
 <p align="center"> 
 Arven Redesign : (inspired by harith mlbb, Cassandee afk journey, Fushi to your eternity)
  <p align="center"> 
@@ -28,14 +28,18 @@ Adds : symbol of Arthia creation on upper forehead , More details on his staff a
    <p align="center"> 
 change lore title: The unborn god of Sun / Light / Law and Order 
 <p align="center"> 
-Seven Redesign: ( inspired by Hanako tbhk , Norman Tpn , Venti Gi)
+ <img width="350" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/82cc3ecd-2349-4586-b72d-61c3d313fd18" alt=  ![1000907482]>
+  <p align="center"> 
+Seven Redesign: ( inspired by Hanako tbhk , Norman Tpn , Camillo Encanto)
  <p align="center"> 
 Changes : more details on the clothes
   <p align="center"> 
 Remains : dark brown hair , green eyes , short hair , long sleeves 
    <p align="center"> 
 Add: Symbol of a pen
-<p align="center"> 
+ <p align="center"> 
+ <img width="350" src = "https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/8fa43ecf-ef94-4d53-9491-46c46c4bae6d" alt=![1000907480]>
+  <p align="center"> 
 Kenzo Redesign: inspired by ???
 <p align="center"> 
 Changes: more details on clothes and head accessories 
