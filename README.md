@@ -6,10 +6,9 @@ UPDATING THIS EVERYDAY
 <p align="center"> 
 <img width="160" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/46661291-e636-4bd8-8380-634a2a1b65e5" alt = ![1000907483]>
 <p align="center"> 
-              <img width="450" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/46ec1f16-5eee-4126-9bbe-397734d0d8c4" alt = ![1000907477]>
+              <video width="450" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/f0f8c3fd-cd0b-4605-bb14-ea81680740ae"
 </p>
-( inspiration : Vala Afk journey , Rose Quartz , Angela Collector Skin mlbb , Floryn Mlbb , Aurora Mlbb )
- mind her body, shes tall like very tall 7'1 😲😲 I HATE LINEART AAAA i usually just do rendering, HER SYMBOL ABOVE BTW!! thanks xene for animating it
+               GREAT THANKS TO XENE for animating her symbol above and my brother to ai this ( only wips are showed here and since Arthia is finished it will be a surpised when i upload it on tiktok)
 <p align="center"> 
 <img width="350" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/6a7e4998-a980-45a4-bb7b-fa447c8859f4" alt =![24-Jun-16-02-02-06-01]>
 </p>
