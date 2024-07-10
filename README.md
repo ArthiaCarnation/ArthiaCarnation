@@ -11,9 +11,9 @@ sign my guestbook if you want >_<
                <p align="center"> 
                GREAT THANKS TO XENE for animating her symbol above and my brother to ai this ( only wips are showed here and since Arthia is finished it will be a surpised when i upload it on tiktok)
                 <p align="center"> 
-<img width="330" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/6130f4c1-954b-46ce-a177-3cdfa2487858" alt = ![1000907873]>
+<img width="330" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/df54e572-1bd2-4675-9e1a-9b2419978d7f" alt = [1000908041]>
 <p align="center">
- Splash art wip she looks emo ewwww
+ Splash art wip ill fix it guys dw ITS ALSO BLUR CAUSE I HAD TO ADJUST ;_;
  <p align="center">
   <img width="330" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/acde4200-eeb4-481a-8058-fb6c4f32f4d7" alt = ![1000907875]>
   <p align="center">
