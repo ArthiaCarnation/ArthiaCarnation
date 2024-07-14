@@ -10,6 +10,10 @@ sign my guestbook if you want >_<
 </p>
                <p align="center"> 
                GREAT THANKS TO XENE for animating her symbol above and my brother to ai this ( only wips are showed here and since Arthia is finished it will be a surpised when i upload it on tiktok)
+                 <p align="center">
+                 <img width="160" src ="https://github.com/user-attachments/assets/ce81492d-1621-4c49-a0b7-4bad89e0a949" alt = ![1000908282]>
+                   <p align="center">
+                     i have to upload it on here so my friend can draw her...
                 <p align="center"> 
 <img width="330" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/e27cb402-19cb-4b12-9261-03dc5d7a22ce" alt =![1000908232] >
 <p align="center">
