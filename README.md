@@ -2,7 +2,7 @@
 ## PLEASEEEE DONT TAKE REF/INSPO/COPY without my permission
 ARTHIA PROGESS since 6/05/2023 https://docs.google.com/document/d/1wBdXhBk2eQbA9E1O0kaiypLBxa3pdEedJDQXsvM2sRs/edit?usp=sharing
 UPDATING THIS EVERYDAY 
-sign my guestbook if you want >_<
+sign my guestbook if you want >_< ,  why is my wattpad story link so long bro..
 <p align="center"> 
 <img width="160" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/46661291-e636-4bd8-8380-634a2a1b65e5" alt = ![1000907483]>
 <p align="center"> 
