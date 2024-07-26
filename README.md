@@ -6,8 +6,7 @@ sign my guestbook if you want >_< ,  why is my wattpad story link so long bro..
 <p align="center"> 
 <img width="160" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/46661291-e636-4bd8-8380-634a2a1b65e5" alt = ![1000907483]>
 <p align="center"> 
-              <img width="450" src="https://github.com/user-attachments/assets/82663b2e-9688-4669-afb3-006838536619" alt=![1000909054]>
-
+              <img width="450" src="https://github.com/user-attachments/assets/85e0d34f-ab57-4656-881c-f5cd441e064c" alt=![1000909061]>
   <p align="center"> 
     I SRS NEEDED TO SEARCH UP GREEK GODDESS TO TAKE INSPO BUT ITS MOST OF IT ARE OVERUSED IM CRYINGGG , update its slightly getting better 
 </p>
