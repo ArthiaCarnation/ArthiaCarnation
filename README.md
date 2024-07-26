@@ -6,9 +6,9 @@ sign my guestbook if you want >_< ,  why is my wattpad story link so long bro..
 <p align="center"> 
 <img width="160" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/46661291-e636-4bd8-8380-634a2a1b65e5" alt = ![1000907483]>
 <p align="center"> 
-              <img width="450" src="https://github.com/user-attachments/assets/85e0d34f-ab57-4656-881c-f5cd441e064c" alt=![1000909061]>
+              <img width="450" src="https://github.com/user-attachments/assets/74d9d5b9-60d8-4f36-9882-3b8d8567e23f" alt = ![1000909083]>
   <p align="center"> 
-    I SRS NEEDED TO SEARCH UP GREEK GODDESS TO TAKE INSPO BUT ITS MOST OF IT ARE OVERUSED IM CRYINGGG , update its slightly getting better 
+    I SRS NEEDED TO SEARCH UP GREEK GODDESS TO TAKE INSPO BUT ITS MOST OF IT ARE OVERUSED IM CRYINGGG , update its slightly getting better , okay im changing her bottom to make style
 </p>
                <p align="center"> 
                GREAT THANKS TO XENE for animating her symbol above and my brother to ai this ( only wips are showed here and since Arthia is finished it will be a surpised when i upload it on tiktok)
