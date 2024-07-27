@@ -8,9 +8,9 @@ sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why
 <p align="center"> 
 <img width="160" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/46661291-e636-4bd8-8380-634a2a1b65e5" alt = ![1000907483]>
 <p align="center"> 
-              <img width="450" src="https://github.com/user-attachments/assets/74d9d5b9-60d8-4f36-9882-3b8d8567e23f" alt = ![1000909083]>
+              <img width="450" src="https://github.com/user-attachments/assets/8bebeb2f-0285-4322-bb1f-16936dc56fdb" alt = ![1000909104]>
   <p align="center"> 
-    I SRS NEEDED TO SEARCH UP GREEK GODDESS TO TAKE INSPO BUT ITS MOST OF IT ARE OVERUSED IM CRYINGGG , update its slightly getting better , okay im changing her bottom to make style
+    IT GOT A LITTLE BIT BETTER, pls dont look at her toes
 </p>
                <p align="center"> 
                GREAT THANKS TO XENE for animating her symbol above and my brother to ai this ( only wips are showed here and since Arthia is finished it will be a surpised when i upload it on tiktok)
