@@ -2,7 +2,7 @@
 ## PLEASEEEE DONT TAKE REF/INSPO/COPY without my permission
 ARTHIA PROGESS since 6/05/2023 https://docs.google.com/document/d/1wBdXhBk2eQbA9E1O0kaiypLBxa3pdEedJDQXsvM2sRs/edit?usp=sharing
 UPDATING THIS EVERYDAY 
-sign my guestbook if you want >_< ,  why is my wattpad story link so long bro.. PLSSS DONT TAKE REFF:((((((( ref/reference means similarities ^_^^
+sign my guestbook if you want >_< ,  why is my wattpad story link so long bro.. PLSSS DONT TAKE REFF:((((((( ref/reference means similarities ^_^^ ,  ALL NON CRDT ARE MINE its orginal Q_Q
 <p align="center">
   <img width="250" src ="https://github.com/user-attachments/assets/8562a8e4-ec6c-4360-90e1-e02fc3602437" Alt =  ![pony-town-Ethereal Beauty ! ORG-sit-hearts-blinking-padded-ponyplush-4x]>
 <p align="center"> 
