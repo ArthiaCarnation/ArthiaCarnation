@@ -20,6 +20,7 @@ sign my guestbook if you want >_< ,  why is my wattpad story link so long bro.. 
             <img width="300" src="https://github.com/user-attachments/assets/da62bc55-3da0-4262-be76-5a5aa71387d4" alt =  ![1000908763]
        <p align="center">
                      IM SO DONE I HATE HER DESIGN I HATE IT  
+                     <p align="center"> 
 <img width="330" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/e27cb402-19cb-4b12-9261-03dc5d7a22ce" alt =![1000908232] >
 <p align="center">
  drip market wip, okay just imagine she has a floating carnation flower in her hand, she hits you with it thats her new power 
