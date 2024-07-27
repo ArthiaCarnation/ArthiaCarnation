@@ -2,7 +2,9 @@
 ## PLEASEEEE DONT TAKE REF/INSPO/COPY without my permission
 ARTHIA PROGESS since 6/05/2023 https://docs.google.com/document/d/1wBdXhBk2eQbA9E1O0kaiypLBxa3pdEedJDQXsvM2sRs/edit?usp=sharing
 UPDATING THIS EVERYDAY 
-sign my guestbook if you want >_< ,  why is my wattpad story link so long bro..
+sign my guestbook if you want >_< ,  why is my wattpad story link so long bro.. PLSSS DONT TAKE REFF:((((((( ref/reference means similarities ^_^^
+<p align="center">
+  <img width="250" src ="https://github.com/user-attachments/assets/8562a8e4-ec6c-4360-90e1-e02fc3602437" Alt =  ![pony-town-Ethereal Beauty ! ORG-sit-hearts-blinking-padded-ponyplush-4x]>
 <p align="center"> 
 <img width="160" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/46661291-e636-4bd8-8380-634a2a1b65e5" alt = ![1000907483]>
 <p align="center"> 
@@ -76,7 +78,7 @@ FAN ART
 </p>
 <p align="center"> 
 <img width="300" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/fcb26454-a635-4af3-8caf-a66a8c45db37"alt=![1000906744]>
-  <p align="center"> 
+  <p align="center">
   FROM NOX!!
    <p align="center"> 
   <img width="300" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/27c549a6-f7f7-4a43-bb9b-1f16aa66435a" alt= ![Screenshot_10]>
@@ -96,6 +98,10 @@ FAN ART
      <img width="300" src=https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/fb09756d-4318-441e-9c9f-9f4a90d7441c alt= ![Screenshot_9>
       <p align="center"> 
 FROM MIKO
+         <p align="center"> 
+          <img width="300" src="https://github.com/user-attachments/assets/0ca7fc95-85af-4bba-8ecc-5f757c5e8764" alt=![Screenshot_2]>
+       <p align="center"> 
+         FROM MIMIXKYU
 </p>
 <hr>
 
