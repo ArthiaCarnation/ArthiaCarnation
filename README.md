@@ -23,7 +23,7 @@ God Work : Stable the Kingdom , Make new laws as Judge / serves justice and fair
 <p align="center"> 
               <img width="450" src="https://github.com/user-attachments/assets/8bebeb2f-0285-4322-bb1f-16936dc56fdb" alt = ![1000909104]>
   <p align="center"> 
-    IT GOT A LITTLE BIT BETTER, pls dont look at her toes
+   Updatinggg, she always looks like a bride its her offical theme 
 </p>
                <p align="center"> 
                GREAT THANKS TO XENE for animating her symbol above and my brother to ai this ( only wips are showed here and since Arthia is finished it will be a surpised when i upload it on tiktok)
