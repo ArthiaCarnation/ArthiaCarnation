@@ -4,6 +4,17 @@ ARTHIA PROGESS since 6/05/2023 https://docs.google.com/document/d/1wBdXhBk2eQbA9
 UPDATING THIS EVERYDAY 
 sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why is my wattpad story link so long bro.. PLSSS DONT TAKE REFF:((((((( ref/reference means similarities ^_^^ ,  ALL NON CRDT ARE MINE its orginal Q_Q
 <p align="center">
+  OC INTRODUCTION WIP
+  <p align="center">
+God/full name : Arthia Valdrenherts
+ age: 3000 - 5000 Bday: April  30  height: 7'1 -  217cm 
+pronounce : She / her
+ Sexuality : Asexual/Aromantic/Orchidsexual 
+ Speices : Goddes
+ Title :  Preliminary Court , Ethereal Beauty, Goddess of Promise - Devotion , Faith , Hope , Life , Queen of Ethylena Valer Kingdom (Second Heaven)
+Personality type : INFJ-A / Perfectionist / Strong Self Control Emotion
+God Work : Stable the Kingdom , Make new laws as Judge / serves justice and fairness , Basically a 'Preliminary Court Judge' is the one who answers everything on question and debates 
+<p align="center">
   <img width="250" src ="https://github.com/user-attachments/assets/8562a8e4-ec6c-4360-90e1-e02fc3602437" Alt =  ![pony-town-Ethereal Beauty ! ORG-sit-hearts-blinking-padded-ponyplush-4x]>
 <p align="center"> 
 <img width="160" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/46661291-e636-4bd8-8380-634a2a1b65e5" alt = ![1000907483]>
