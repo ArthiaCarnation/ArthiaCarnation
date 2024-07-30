@@ -12,7 +12,7 @@ pronounce : She / her
  Sexuality : Asexual/Aromantic/Orchidsexual 
  Speices : Goddes
  Title :  Preliminary Court , Ethereal Beauty, Goddess of Promise - Devotion , Faith , Hope , Life , Queen of Ethylena Valer Kingdom (Second Heaven)
-Personality type : INFJ-A / Perfectionist / Strong Self Control Emotion
+Personality type : INFJ-A / Perfectionist / Strong Self Control / Workacholic 
 God Work : Stable the Kingdom , Make new laws as Judge / serves justice and fairness , Basically a 'Preliminary Court Judge' is the one who answers everything on questions and debates
     Adressed as "My/Your Primacy" , "Queen Valer"
     Ship Oc x Canon : Arthia x Venti  = Venthia/Arvent 
