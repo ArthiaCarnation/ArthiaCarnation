@@ -7,7 +7,7 @@ sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why
   OC INTRODUCTION WIP
   <p align="center">
 God/full name : Arthia Valdrenherts
- age: 3000 - 5000 Bday: April  30  height: 7'1 -  217cm 
+ age: 3000 - 5000 Bday: April  30  height: 7'1 -  217cm Weight : 223 pound / 101 kilogram
 pronounce : She / her
  Sexuality : Asexual/Aromantic/Orchidsexual 
  Speices : Goddes
