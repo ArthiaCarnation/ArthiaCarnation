@@ -22,7 +22,7 @@ pronounce : She / her
         <p align="center">
  Sexuality : Asexual/Aromantic/Orchidsexual 
             <p align="center">
- Speices : Goddess
+ Speices/look alike : Human , elf , Fairy
           <p align="center">
  Title :  Preliminary Court , Ethereal Beauty, Goddess of Promise - Devotion , Faith , Hope , Life , Queen of Ethylena Valer Kingdom (Second Heaven) , Descender Goddess , Mother's Love
             <p align="center">
