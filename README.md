@@ -10,11 +10,18 @@ sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why
   <p align="center">
 God/full name : Arthia Valdrenherts
     <p align="center">
- age: 3000 - 5000 Bday: April  30  height: 7'1 -  217cm Weight : 223 pound / 101 kilogram
+ age: 3000 - 5000
+        <p align="center">
+      Bday: April  30  
+            <p align="center">
+      height: 7'1 -  217cm 
+                <p align="center">
+      Weight : 223 pound / 101 kilogram
       <p align="center">
 pronounce : She / her
         <p align="center">
  Sexuality : Asexual/Aromantic/Orchidsexual 
+            <p align="center">
  Speices : Goddess
           <p align="center">
  Title :  Preliminary Court , Ethereal Beauty, Goddess of Promise - Devotion , Faith , Hope , Life , Queen of Ethylena Valer Kingdom (Second Heaven) , Descender Goddess , Mother's Love
