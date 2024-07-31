@@ -4,6 +4,8 @@ ARTHIA PROGESS since 6/05/2023 https://docs.google.com/document/d/1wBdXhBk2eQbA9
 UPDATING THIS EVERYDAY 
 sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why is my wattpad story link so long bro.. PLSSS DONT TAKE REFF:((((((( ref/reference means similarities on everything here thank you, most of my friends confront me about someone having THE SAME SIMILARITY AS MINE , this is my hard work atleast credit me PLEASEEE YOU DONT KNOW HOW MUCH IT TOOK WHEN I THINK OF ARTHIA EVERYTHING FOR HER
 <p align="center">
+  i hate stranger competitive fights its called jealousy, being competitive sometimes is good and bad unless our friends/manual will them, bring so much attention to someone you dont know and taking inspo/ref from them
+<p align="center">
   OC INTRODUCTION WIP
   <p align="center">
 God/full name : Arthia Valdrenherts
