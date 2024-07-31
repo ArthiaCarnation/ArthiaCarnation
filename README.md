@@ -9,14 +9,22 @@ sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why
   OC INTRODUCTION WIP
   <p align="center">
 God/full name : Arthia Valdrenherts
+    <p align="center">
  age: 3000 - 5000 Bday: April  30  height: 7'1 -  217cm Weight : 223 pound / 101 kilogram
+      <p align="center">
 pronounce : She / her
+        <p align="center">
  Sexuality : Asexual/Aromantic/Orchidsexual 
- Speices : Goddes
- Title :  Preliminary Court , Ethereal Beauty, Goddess of Promise - Devotion , Faith , Hope , Life , Queen of Ethylena Valer Kingdom (Second Heaven) , Descender Goddess , Mother Love
+ Speices : Goddess
+          <p align="center">
+ Title :  Preliminary Court , Ethereal Beauty, Goddess of Promise - Devotion , Faith , Hope , Life , Queen of Ethylena Valer Kingdom (Second Heaven) , Descender Goddess , Mother's Love
+            <p align="center">
 Personality type : INFJ-A / Perfectionist / Strong Self Control / Workacholic 
+              <p align="center">
 God Work : Stable the Kingdom , Make new laws as Judge / serves justice and fairness , Basically a 'Preliminary Court Judge' is the one who answers everything on questions and debates
+                <p align="center">
     Adressed as "My/Your Primacy" , "Queen Valer"
+                  <p align="center">
     Ship Oc x Canon : Arthia x Venti  = Venthia/Arvent 
 <p align="center">
   <img width="250" src ="https://github.com/user-attachments/assets/8562a8e4-ec6c-4360-90e1-e02fc3602437" Alt =  ![pony-town-Ethereal Beauty ! ORG-sit-hearts-blinking-padded-ponyplush-4x]>
