@@ -3,8 +3,6 @@
 ARTHIA PROGESS since 6/05/2023 https://docs.google.com/document/d/1wBdXhBk2eQbA9E1O0kaiypLBxa3pdEedJDQXsvM2sRs/edit?usp=sharing
 UPDATING THIS EVERYDAY 
 sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why is my wattpad story link so long bro.. PLSSS DONT TAKE REFF:((((((( ref/reference means similarities on everything here thank you, most of my friends confront me about someone having THE SAME SIMILARITY AS MINE , this is my hard work atleast credit me PLEASEEE YOU DONT KNOW HOW MUCH IT TOOK WHEN I THINK OF ARTHIA EVERYTHING FOR HER
-<p align="center">
- Too Senstive about it? how about YOU TRY to have Wattpad story chp 9 that only contains 24549 words without chp 7 counted , having 2000+ - 4000+ words every chapter , 12156 word counted in Goddgle docs Advance story/full lore STILL A WIP , Have 5 designs of her , Make her in a 3d model it took 3 days just to finish her face and hair / using computer with a mouse it would be easier if i had a pen ,  2 Drip marketing , 8 solo arts , 10 arts with venti , 10 arts of other oc drawing of mine that is relative to her , Ardevues , Seven , Arven , Kenzo , Xeno , Eutimia , Viviana etc you get it , Hard work making my Tiktok account famous total of  72.4K since 2020?? , took half 300+ of my slots on pony town im already on 500/500 , Cosplay of her full set without her contact lens , actually spended 1000+ to commission/cosplay and upcoming : 3 emotes , Pin Arthia irl and a costume plushy , book 2 our promise 
   <p align="center">
     This is how im determine about my oc :_:::
 <p align="center">
