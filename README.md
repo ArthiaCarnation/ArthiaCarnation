@@ -3,8 +3,6 @@
 ARTHIA PROGESS since 6/05/2023 https://docs.google.com/document/d/1wBdXhBk2eQbA9E1O0kaiypLBxa3pdEedJDQXsvM2sRs/edit?usp=sharing
 UPDATING THIS EVERYDAY 
 sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why is my wattpad story link so long bro.. PLSSS DONT TAKE REFF:((((((( ref/reference means similarities on everything here thank you, most of my friends confront me about someone having THE SAME SIMILARITY AS MINE , this is my hard work atleast credit me PLEASEEE YOU DONT KNOW HOW MUCH IT TOOK WHEN I THINK OF ARTHIA EVERYTHING FOR HER
-  <p align="center">
-    This is how im determine about my oc :_:::
 <p align="center">
   OC INTRODUCTION WIP
   <p align="center">
