@@ -20,7 +20,7 @@ pronounce : She / her
         <p align="center">
  Sexuality : Asexual/Aromantic/Orchidsexual 
             <p align="center">
-            Nationality : Europian / Greece
+            Nationality : European / Greece
               <p align="center">
  Speices/look alike : Human , elf , Fairy
           <p align="center">
