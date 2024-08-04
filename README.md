@@ -32,7 +32,7 @@ Personality type : INFJ-A / Perfectionist / Strong Self Control / Workacholic
               <p align="center">
 God Work : Stable the Kingdom , Make new laws as Judge / serves justice and fairness , Basically a 'Preliminary Court Judge' is the one who answers everything on questions and debates
                 <p align="center">
-    Adressed as "My/Your Primacy" , "Queen Valer" , "Divine Mother" , "Your/my Goddess"
+    Adressed as "My/You're Primacy" , "Queen Valer" , "Divine Mother" , "My Goddess"
                   <p align="center">
     Ship Oc x Canon : Arthia x Venti  = Venthia/Arvent 
 <p align="center">
