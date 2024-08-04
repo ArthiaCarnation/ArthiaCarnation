@@ -41,7 +41,8 @@ God Work : Stable the Kingdom , Make new laws as Judge / serves justice and fair
 <img width="160" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/46661291-e636-4bd8-8380-634a2a1b65e5" alt = ![1000907483]>
 <p align="center"> 
               <img width="450" src="https://github.com/user-attachments/assets/3470bfda-c6fe-4b74-9cae-8dc04f0cdbe9" alt= ![1000909126]>
-   <img width="450"  src= "https//github.com/user-attachments/assets/0c485318-dc68-4f76-8298-74cac2857aae" alt =![1000909252]>
+  <p align="center">
+   <img width="450"src= "https://github.com/user-attachments/assets/69371ecf-162d-4b98-9688-7f2a5f5c862d" alt =![1000909272]>
   <p align="center"> 
    Updatinggg, she always looks like a bride its her offical theme 
 </p>
@@ -50,8 +51,6 @@ God Work : Stable the Kingdom , Make new laws as Judge / serves justice and fair
                  <p align="center">
                  <img width="300" src ="https://github.com/user-attachments/assets/ce81492d-1621-4c49-a0b7-4bad89e0a949" alt = ![1000908282]>
                    <p align="center">
-            <img width="300" src="https://github.com/user-attachments/assets/da62bc55-3da0-4262-be76-5a5aa71387d4" alt =  ![1000908763]
-       <p align="center">
                      IM SO DONE I HATE HER DESIGN I HATE IT  
                      <p align="center"> 
 <img width="330" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/e27cb402-19cb-4b12-9261-03dc5d7a22ce" alt =![1000908232] >
