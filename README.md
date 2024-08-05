@@ -7,6 +7,7 @@ sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why
   THANK YOU SO MUCH FOR THE PEOPLE WHO WATCH MY PROGESS / READ THE WHOLE DOCS / CROWNS IT MOTIVATES ME TO KEEP GOING 
   <p align="center"> 
      <img width="250" src ="https://github.com/user-attachments/assets/5ad6839e-bd7b-4e6c-9429-8a07db228340" alt=![Screenshot_11]>
+      <p align="center"> 
 WILL START TAGGING MOOTS PLEASE ASK ME TO BE MOOTS!!
   <p align="center">
   OC INTRODUCTION WIP
