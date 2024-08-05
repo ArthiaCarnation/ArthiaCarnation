@@ -5,6 +5,9 @@ UPDATING THIS EVERYDAY
 sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why is my wattpad story link so long bro.. PLSSS DONT TAKE REFF:((((((( ref/reference means similarities on everything here thank you, most of my friends confront me about someone having THE SAME SIMILARITY AS MINE , this is my hard work atleast credit me PLEASEEE YOU DONT KNOW HOW MUCH IT TOOK WHEN I THINK OF ARTHIA EVERYTHING FOR HER
 <p align="center">
   THANK YOU SO MUCH FOR THE PEOPLE WHO WATCH MY PROGESS / READ THE WHOLE DOCS / CROWNS IT MOTIVATES ME TO KEEP GOING 
+  <p align="center"> 
+     <img width="250" src ="https://github.com/user-attachments/assets/5ad6839e-bd7b-4e6c-9429-8a07db228340" alt=![Screenshot_11]>
+WILL START TAGGING MOOTS PLEASE ASK ME TO BE MOOTS!!
   <p align="center">
   OC INTRODUCTION WIP
   <p align="center">
@@ -34,7 +37,7 @@ God Work : Stable the Kingdom , Make new laws as Judge / serves justice and fair
                 <p align="center">
     Adressed as "My/You're Primacy" , "Queen Valer" , "Divine Mother" , "My Goddess"
                   <p align="center">
-    Ship Oc x Canon : Arthia x Venti  = Venthia/Arvent 
+    Ship Oc x Canon : Arthia x Venti  = Venthia/Arvent , Her song : Bernadette - IAMX
 <p align="center">
   <img width="250" src ="https://github.com/user-attachments/assets/8562a8e4-ec6c-4360-90e1-e02fc3602437" Alt =  ![pony-town-Ethereal Beauty ! ORG-sit-hearts-blinking-padded-ponyplush-4x]>
 <p align="center"> 
@@ -70,38 +73,31 @@ Plans:
 <p align="center"> 
  <img width="350" src= "https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/143e447a-e973-41c9-9545-dbd40748951f" alt= ![1000907476]>
 <p align="center"> 
-Arven Redesign : (inspired by harith mlbb, Cassandee afk journey, Fushi to your eternity)
+Arven Redesign : (inspired by harith mlbb, Cassandee afk journey, Fushi to your eternity) Wip
  <p align="center"> 
- Changes : White hair , yellow eyes , Hair up 
+Full name : Arven Valern 
  <p align="center"> 
-Remains before : Sun symbol , height , Coat , long sleeves , Star on his chest , Staff
-  <p align="center"> 
-Adds : symbol of Arthia creation on upper forehead , More details on his staff and Sun halo
-   <p align="center"> 
-change lore title: The unborn god of Sun / Light / Law and Order 
+Age : 50+ - 900+ Height: 130cm (Past) 190cm (Future) Bday : Dec 6 Title : God of Law/order/Light/Peace/Sun/Star , The Trusted Peace Personality : serenity , Obedienty , Modest , tranquillity Nationality : Italian / Romonia Speices/look alike : God , Angel Adressed as : "My light" , "Caramel" , "Prince Light" Song : Royality - Egzod
 <p align="center"> 
  <img width="350" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/82cc3ecd-2349-4586-b72d-61c3d313fd18" alt=  ![1000907482]>
   <p align="center"> 
-Seven Redesign: ( inspired by Hanako tbhk , Norman Tpn , Camillo Encanto)
+Seven Redesign: ( inspired by Hanako tbhk , Norman Tpn , Camillo Encanto) this is not his full design
  <p align="center"> 
-Changes : more details on the clothes
+Full name : Anales ????
   <p align="center"> 
-Remains : dark brown hair , green eyes , short hair , long sleeves 
+Age : 98 - 1000+ Height: 149cm(past) 6'8 (future) Bday : March 30 Title : God of Wisdom/knowledge/Destruction/Hunter , The lost Widsom    Personality : Provoker , Bright , Lively (Past)  lunatic, uncontrollable , Ambitious (Future) Nationality : German Speices/look alike : Human Adressed as : "Seven"  Song : Twisted - MISSO
    <p align="center"> 
 Add: Symbol of a pen
  <p align="center"> 
  <img width="350" src = "https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/8fa43ecf-ef94-4d53-9491-46c46c4bae6d" alt=![1000907480]>
   <p align="center"> 
-Kenzo Redesign: inspired by ???
+Kenzo Redesign: inspired by ??? not his offical design Miko's Oc
 <p align="center"> 
-Changes: more details on clothes and head accessories 
+Full name : Kenzo Rhukandawa
 <p align="center"> 
-Add : lotus symbol, throat / between collarbone
- <p align="center"> 
-  change lore title : God of beauty / Judgment / Perfection / Principal
-<p align="center"> 
+  Age : 1451 Height : 175cm title: God of beauty / Judgment / Perfection / Principal  Personality : A perfectionist Nationality : Arabic / Greece Speices/look alike : Human, Elf Adressed as : "My lotus/Lord"
+  <p align="center"> 
 I would post my wips here before I upload them on TikTok so I would be motivated
-
 <p align="center"> 
 FAN ART 
 <p align="center"> 
