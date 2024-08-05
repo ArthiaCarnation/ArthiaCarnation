@@ -87,8 +87,6 @@ Seven Redesign: ( inspired by Hanako tbhk , Norman Tpn , Camillo Encanto) this i
 Full name : Anales ????
   <p align="center"> 
 Age : 98 - 1000+ Height: 149cm(past) 6'8 (future) Bday : March 30 Title : God of Wisdom/knowledge/Destruction/Hunter , The lost Widsom    Personality : Provoker , Bright , Lively (Past)  lunatic, uncontrollable , Ambitious (Future) Nationality : German Speices/look alike : Human Adressed as : "Seven"  Song : Twisted - MISSO
-   <p align="center"> 
-Add: Symbol of a pen
  <p align="center"> 
  <img width="350" src = "https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/8fa43ecf-ef94-4d53-9491-46c46c4bae6d" alt=![1000907480]>
   <p align="center"> 
