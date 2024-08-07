@@ -94,7 +94,7 @@ Kenzo Redesign: inspired by ??? not his offical design Miko's Oc
 <p align="center"> 
 Full name : Kenzo Rhukandawa
 <p align="center"> 
-  Age : 1451 Height : 175cm title: God of beauty / Judgment / Perfection / Principal  Personality : A perfectionist Nationality : Arabic / Greece Speices/look alike : Human, Elf Adressed as : "My lotus/Lord"
+  Age : 1451 Height : 175cm title: God of beauty / Judgment / Perfection / Principal  Personality : A perfectionist Nationality : Arabic / Greece Speices/look alike : Human, Elf Adressed as : "My lotus/Lord" . "Principal Kenzo"
   <p align="center"> 
 I would post my wips here before I upload them on TikTok so I would be motivated
 <p align="center"> 
