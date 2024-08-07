@@ -48,7 +48,7 @@ God Work : Stable the Kingdom , Make new laws as Judge / serves justice and fair
   <p align="center">
    <img width="450"src= "https://github.com/user-attachments/assets/99cd8637-873c-42a5-babc-ef42e3a50425" alt =![1000909620]>
   <p align="center"> 
-   A BRIDE GUYSSS , rendering went insane  ILL FIX HER BODY OKAY PLSS IT LOOKS SO WRONG
+   A BRIDE GUYSSS , rendering went insane  ILL FIX HER BODY OKAY PLSS IT LOOKS SO WRONG genshin face makes her look like a kid
 </p>
                <p align="center"> 
                GREAT THANKS TO XENE for animating her symbol above and my brother to ai this ( only wips are showed here and since Arthia is finished it will be a surpised when i upload it on tiktok)
