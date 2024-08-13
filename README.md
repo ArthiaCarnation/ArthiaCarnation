@@ -44,7 +44,7 @@ God Work : Stable the Kingdom , Make new laws as Judge / serves justice and fair
 <p align="center"> 
 <img width="160" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/46661291-e636-4bd8-8380-634a2a1b65e5" alt = ![1000907483]>
 <p align="center"> 
-   <img width="450"src= "https://github.com/user-attachments/assets/27f5a909-2ac1-4ae8-b2ef-98c5e247a337" alt =![1000909892]>
+   <img width="450"src= "https://github.com/user-attachments/assets/3b68f398-0a7f-4eee-a857-3e41f90c5f75" alt =![1000909915]>
   <p align="center"> 
    A BRIDE GUYSSS , rendering went insane  ILL FIX HER BODY OKAY PLSS IT LOOKS SO WRONG genshin face makes her look like a kid, HER LEGS LOOK FAT
 </p>
