@@ -44,16 +44,12 @@ God Work : Stable the Kingdom , Make new laws as Judge / serves justice and fair
 <p align="center"> 
 <img width="160" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/46661291-e636-4bd8-8380-634a2a1b65e5" alt = ![1000907483]>
 <p align="center"> 
-   <img width="450"src= "https://github.com/user-attachments/assets/3b68f398-0a7f-4eee-a857-3e41f90c5f75" alt =![1000909915]>
+   <img width="450"src= "https://github.com/user-attachments/assets/f76bc70d-38cd-4afc-be5a-1aff0de9d5b1" alt =![1000910213]>
   <p align="center"> 
    A BRIDE GUYSSS , rendering went insane  ILL FIX HER BODY OKAY PLSS IT LOOKS SO WRONG genshin face makes her look like a kid, 104:44 hours..😢
 </p>
                <p align="center"> 
                GREAT THANKS TO XENE for animating her symbol above 
-                 <p align="center">
-                 <img width="300" src ="https://github.com/user-attachments/assets/ce81492d-1621-4c49-a0b7-4bad89e0a949" alt = ![1000908282]>
-                   <p align="center">
-                     IM SO DONE I HATE HER DESIGN I HATE IT  
                      <p align="center"> 
 <img width="330" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/e27cb402-19cb-4b12-9261-03dc5d7a22ce" alt =![1000908232] >
 <p align="center">
