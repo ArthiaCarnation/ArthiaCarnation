@@ -11,11 +11,16 @@ sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why
 <img width="160" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/46661291-e636-4bd8-8380-634a2a1b65e5" alt = ![1000907483]>
   <p align="center"> 
     UPCOMING EMOTES
+    <p align="center"> 
     he loves me..he loves me not ( picking flowers)
+      <p align="center"> 
     ..? (side eye / stare )
+        <p align="center"> 
     oh! barbatos ( giggling )
+          <p align="center"> 
     Pinky promise?
-    ( cringe but okay )
+            <p align="center"> 
+    ( its cringe but okay)
 <p align="center"> 
    <img width="400" src ="https://github.com/user-attachments/assets/231fc2e8-2395-4956-8edc-ba5cc3074f0aa" alt= ![1000910413]>
                      <p align="center"> 
