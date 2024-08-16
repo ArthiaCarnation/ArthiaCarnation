@@ -5,49 +5,12 @@ UPDATING THIS EVERYDAY
 sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why is my wattpad story link so long bro.. PLSSS DONT TAKE REFF:((((((( ref/reference means similarities on everything here thank you, most of my friends confront me about someone having THE SAME SIMILARITY AS MINE , this is my hard work atleast credit me PLEASEEE YOU DONT KNOW HOW MUCH IT TOOK WHEN I THINK OF ARTHIA EVERYTHING FOR HER
 <p align="center">
   THANK YOU SO MUCH FOR THE PEOPLE WHO WATCH MY PROGESS / READ THE WHOLE DOCS / CROWNS IT MOTIVATES ME TO KEEP GOING 
-      <p align="center"> 
-WILL START TAGGING MOOTS PLEASE ASK ME TO BE MOOTS!!
   <p align="center">
-  OC INTRODUCTION WIP
-  <p align="center">
-God/full name : Arthia Valdrenherts
-    <p align="center">
- age: 3000 - 5000
-        <p align="center">
-      Bday: April  30  
-            <p align="center">
-      height: 7'1 -  217cm 
-                <p align="center">
-      Weight : 223 pound / 101 kilogram
-      <p align="center">
-pronounce : She / her
-        <p align="center">
- Sexuality : Asexual/Aromantic/Orchidsexual 
-            <p align="center">
-            Nationality : European / Greece
-              <p align="center">
- Speices/look alike : Human , elf , Fairy
-          <p align="center">
- Title :  Preliminary Court , Ethereal Beauty, Goddess of Promise - Devotion , Faith , Hope , Life , Queen of Ethylena Valer Kingdom (Second Heaven) , Descender Goddess , Mother's Love
-            <p align="center">
-Personality type : INFJ-A / Perfectionist / Strong Self Control / Workacholic 
-              <p align="center">
-God Work : Stable the Kingdom , Make new laws as Judge / serves justice and fairness , Basically a 'Preliminary Court Judge' is the one who answers everything on questions and debates
-                <p align="center">
-    Adressed as "My/You're Primacy" , "Queen Valer" , "Divine Mother" , "My Goddess"
-                  <p align="center">
-    Ship Oc x Canon : Arthia x Venti  = Venthia/Arvent , Her song : Bernadette - IAMX
-<p align="center">
   <img width="250" src ="https://github.com/user-attachments/assets/8562a8e4-ec6c-4360-90e1-e02fc3602437" Alt =  ![pony-town-Ethereal Beauty ! ORG-sit-hearts-blinking-padded-ponyplush-4x]>
 <p align="center"> 
 <img width="160" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/46661291-e636-4bd8-8380-634a2a1b65e5" alt = ![1000907483]>
 <p align="center"> 
-   <img width="450"src= "https://github.com/user-attachments/assets/f76bc70d-38cd-4afc-be5a-1aff0de9d5b1" alt =![1000910213]>
-  <p align="center"> 
-   A BRIDE GUYSSS , rendering went insane  ILL FIX HER BODY OKAY PLSS IT LOOKS SO WRONG genshin face makes her look like a kid, 104:44 hours..😢
-</p>
-               <p align="center"> 
-               GREAT THANKS TO XENE for animating her symbol above 
+   <img width="400" src ="https://github.com/user-attachments/assets/231fc2e8-2395-4956-8edc-ba5cc3074f0aa" alt= ![1000910413]>
                      <p align="center"> 
 <img width="330" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/e27cb402-19cb-4b12-9261-03dc5d7a22ce" alt =![1000908232] >
 <p align="center">
