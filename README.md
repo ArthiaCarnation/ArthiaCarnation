@@ -9,12 +9,16 @@ sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why
   <img width="250" src ="https://github.com/user-attachments/assets/8562a8e4-ec6c-4360-90e1-e02fc3602437" Alt =  ![pony-town-Ethereal Beauty ! ORG-sit-hearts-blinking-padded-ponyplush-4x]>
 <p align="center"> 
 <img width="160" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/46661291-e636-4bd8-8380-634a2a1b65e5" alt = ![1000907483]>
+  <p align="center"> 
+    UPCOMING EMOTES
+    he loves me..he loves me not ( picking flowers)
+    ..? (side eye / stare )
+    oh! barbatos ( giggling )
+    Pinky promise?
+    ( cringe but okay )
 <p align="center"> 
    <img width="400" src ="https://github.com/user-attachments/assets/231fc2e8-2395-4956-8edc-ba5cc3074f0aa" alt= ![1000910413]>
                      <p align="center"> 
-<img width="330" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/e27cb402-19cb-4b12-9261-03dc5d7a22ce" alt =![1000908232] >
-<p align="center">
- drip market wip, okay just imagine she has a floating carnation flower in her hand, she hits you with it thats her new power 
  <p align="center">
   <img width="330" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/acde4200-eeb4-481a-8058-fb6c4f32f4d7" alt = ![1000907875]>
   <p align="center">
