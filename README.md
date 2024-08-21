@@ -11,7 +11,7 @@ sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why
     <p align="center">
       THANK YOU SO KUCH FOR SHARING MY OC!!! HERVIE ILY /P UR MY FIRST SUPPORTER ON TIKTOK ILL POST MORE
       <p align="center">
-      <img width="160" src = https://github.com/user-attachments/assets/3f0199d1-bd33-4777-a5d6-c7805bd76201 alt = ![1000910650>
+      <img width="260" src = https://github.com/user-attachments/assets/3f0199d1-bd33-4777-a5d6-c7805bd76201 alt = ![1000910650>
     <p align="center">
   i honestly did not think of that until luna creator (venti's older sister)  mention on broo...
   <p align="center">
