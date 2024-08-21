@@ -6,6 +6,15 @@ sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why
 <p align="center">
   THANK YOU SO MUCH FOR THE PEOPLE WHO WATCH MY PROGESS / READ THE WHOLE DOCS / CROWNS IT MOTIVATES ME TO KEEP GOING 
   <p align="center">
+    <img width="250" src =https://github.com/user-attachments/assets/32a2826d-fcfa-4932-8e72-e1a88925e74c alt = ![1000910781]>
+    <img width="250" src=https://github.com/user-attachments/assets/427687e5-64c4-4662-919d-cefab8fbd662 alt=![1000910787]>
+    <p align="center">
+      THANK YOU SO KUCH FOR SHARING MY OC!!! HERVIE ILY /P UR MY FIRST SUPPORTER HERE ILL POST MORE
+      <p align="center">
+      <img width="160" src = https://github.com/user-attachments/assets/3f0199d1-bd33-4777-a5d6-c7805bd76201 alt = ![1000910650>
+    <p align="center">
+  i honestly did not think of that until luna creator (venti's older sister)  mention on it broo...
+  <p align="center">
   <img width="250" src ="https://github.com/user-attachments/assets/8562a8e4-ec6c-4360-90e1-e02fc3602437" Alt =  ![pony-town-Ethereal Beauty ! ORG-sit-hearts-blinking-padded-ponyplush-4x]>
 <p align="center"> 
 <img width="160" src ="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/46661291-e636-4bd8-8380-634a2a1b65e5" alt = ![1000907483]>
