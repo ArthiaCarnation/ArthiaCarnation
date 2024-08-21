@@ -9,7 +9,7 @@ sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why
     <img width="250" src =https://github.com/user-attachments/assets/32a2826d-fcfa-4932-8e72-e1a88925e74c alt = ![1000910781]>
     <img width="250" src=https://github.com/user-attachments/assets/427687e5-64c4-4662-919d-cefab8fbd662 alt=![1000910787]>
     <p align="center">
-      THANK YOU SO KUCH FOR SHARING MY OC!!! HERVIE ILY /P UR MY FIRST SUPPORTER HERE ILL POST MORE
+      THANK YOU SO KUCH FOR SHARING MY OC!!! HERVIE ILY /P UR MY FIRST SUPPORTER ON TIKTOK ILL POST MORE
       <p align="center">
       <img width="160" src = https://github.com/user-attachments/assets/3f0199d1-bd33-4777-a5d6-c7805bd76201 alt = ![1000910650>
     <p align="center">
