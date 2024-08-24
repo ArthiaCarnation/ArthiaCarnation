@@ -30,6 +30,10 @@ sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why
     Pinky promise?
             <p align="center"> 
     ( its cringe but okay)
+              <p align="center">
+ <img width="400" src ="https://github.com/user-attachments/assets/6851e287-f9ba-4f1d-b6f1-bdf41662e687" alt= ![1000911129]>
+<p align="center">
+LOOKING FOR SOMEONE TO COMMISSION HER ILL POST IT ON TIKTOK!!:)   
 <p align="center"> 
    <img width="400" src ="https://github.com/user-attachments/assets/231fc2e8-2395-4956-8edc-ba5cc3074f0aa" alt= ![1000910413]>
                      <p align="center"> 
