@@ -31,7 +31,7 @@ sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why
             <p align="center"> 
     ( its cringe but okay)
               <p align="center">
- <img width="500" src ="https://github.com/user-attachments/assets/6851e287-f9ba-4f1d-b6f1-bdf41662e687" alt= ![1000911129]>
+ <img width="500" src ="https://github.com/user-attachments/assets/258188c6-e04b-432a-bf53-5b2bf3bea88b" alt=![1000911488]>
 <p align="center">
 LOOKING FOR SOMEONE TO COMMISSION HER ILL POST IT ON TIKTOK!!:)   ( I CANT DRAW TOES OKAY AND HANDS STOP NOTICING IT BRO )
 <p align="center"> 
