@@ -11,7 +11,7 @@ sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why
     <p align="center">
       THANK YOU SO KUCH FOR SHARING MY SHIP HERVIE ILY /P UR MY FIRST SUPPORTER ON TIKTOK ILL POST MORE
       <p align="center">
-        <img width="250" src=https://github.com/user-attachments/assets/e83a3f42-8562-4c3b-b68e-ba4cda7f1ca3 alt=![1000911601]>
+        <img width="350" src=https://github.com/user-attachments/assets/e83a3f42-8562-4c3b-b68e-ba4cda7f1ca3 alt=![1000911601]>
         <p align="center">
           thanks.. Joshua..
            BRO HAD TO MAKE SURE SHES DEAD😭😭
