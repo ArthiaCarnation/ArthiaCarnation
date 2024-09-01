@@ -15,10 +15,6 @@ sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why
         <p align="center">
           thanks.. Joshua..
            BRO HAD TO MAKE SURE SHES DEAD😭😭
-      <p align="center">
-      <img width="260" src = https://github.com/user-attachments/assets/f3f9d39b-9af7-464e-b0c1-b48a20358e17 alt = ![1000911573]>
-    <p align="center">
-heh wip
   <p align="center">
   <img width="250" src ="https://github.com/user-attachments/assets/8562a8e4-ec6c-4360-90e1-e02fc3602437" Alt =  ![pony-town-Ethereal Beauty ! ORG-sit-hearts-blinking-padded-ponyplush-4x]>
 <p align="center"> 
