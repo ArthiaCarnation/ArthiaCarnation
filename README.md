@@ -11,9 +11,9 @@ sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why
     <p align="center">
       THANK YOU SO KUCH FOR SHARING MY SHIP HERVIE ILY /P UR MY FIRST SUPPORTER ON TIKTOK ILL POST MORE
       <p align="center">
-      <img width="260" src = https://github.com/user-attachments/assets/3f0199d1-bd33-4777-a5d6-c7805bd76201 alt = ![1000910650>
+      <img width="260" src = https://github.com/user-attachments/assets/f3f9d39b-9af7-464e-b0c1-b48a20358e17 alt = ![1000911573]>
     <p align="center">
-  i honestly did not think of that until luna creator (venti's older sister)  mention it broo...
+heh wip
   <p align="center">
   <img width="250" src ="https://github.com/user-attachments/assets/8562a8e4-ec6c-4360-90e1-e02fc3602437" Alt =  ![pony-town-Ethereal Beauty ! ORG-sit-hearts-blinking-padded-ponyplush-4x]>
 <p align="center"> 
