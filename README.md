@@ -38,7 +38,7 @@ heh wip
               <p align="center">
  <img width="500" src ="https://github.com/user-attachments/assets/258188c6-e04b-432a-bf53-5b2bf3bea88b" alt=![1000911488]>
 <p align="center">
-LOOKING FOR SOMEONE TO COMMISSION HER ILL POST IT ON TIKTOK!!:)   ( I CANT DRAW TOES OKAY AND HANDS STOP NOTICING IT BRO )
+  ( I CANT DRAW TOES OKAY AND HANDS STOP NOTICING IT BRO )
 <p align="center"> 
    <img width="400" src ="https://github.com/user-attachments/assets/231fc2e8-2395-4956-8edc-ba5cc3074f0aa" alt= ![1000910413]>
                      <p align="center"> 
