@@ -36,7 +36,7 @@ sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why
 <p align="center">
   ( I CANT DRAW TOES OKAY AND HANDS STOP NOTICING IT BRO )
 <p align="center"> 
-   <img width="400" src ="https://github.com/user-attachments/assets/231fc2e8-2395-4956-8edc-ba5cc3074f0aa" alt= ![1000910413]>
+   <img width="400" src ="https://github.com/user-attachments/assets/9e271e84-aaca-4153-a651-a7254303ac21" alt= ![1000911772]>
                      <p align="center"> 
  <p align="center">
   <img width="330" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/acde4200-eeb4-481a-8058-fb6c4f32f4d7" alt = ![1000907875]>
