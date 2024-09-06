@@ -32,7 +32,8 @@ sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why
             <p align="center"> 
     ( its cringe but okay)
               <p align="center">
- <img width="500" src ="https://github.com/user-attachments/assets/258188c6-e04b-432a-bf53-5b2bf3bea88b" alt=![1000911488]>
+ <img width="500" src ="https://github.com/user-attachments/assets/d9bef13b-4e69-4d76-a958-3a4852c9905a" alt=![1000911754]>
+                <img width="500" src ="https://github.com/user-attachments/assets/db4c2531-c038-4021-bf2f-6fa9eb57f17f" alt=![1000911752]>
 <p align="center">
   ( I CANT DRAW TOES OKAY AND HANDS STOP NOTICING IT BRO )
 <p align="center"> 
