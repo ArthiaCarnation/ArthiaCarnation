@@ -42,9 +42,7 @@ sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why
    <img width="400" src ="https://github.com/user-attachments/assets/9e271e84-aaca-4153-a651-a7254303ac21" alt= ![1000911772]>
                      <p align="center"> 
  <p align="center">
-  <img width="330" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/acde4200-eeb4-481a-8058-fb6c4f32f4d7" alt = ![1000907875]>
-  <p align="center">
-   emotes
+  <img width="330" src="https://github.com/user-attachments/assets/3f0564bd-de43-4739-84c2-66c892ab1f08" alt =![1000912381]>
 <p align="center"> 
 <img width="350" src="https://github.com/ArthiaCarnation/ArthiaCarnation/assets/170179384/6a7e4998-a980-45a4-bb7b-fa447c8859f4" alt =![24-Jun-16-02-02-06-01]>
 </p>
