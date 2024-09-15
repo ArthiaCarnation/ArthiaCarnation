@@ -6,15 +6,9 @@ sign my guestbook if you want >_< YOU DONT NEED TO ANSWER THE QUESTIONS!! ,  why
 <p align="center">
   THANK YOU SO MUCH FOR THE PEOPLE WHO WATCH MY PROGESS / READ THE WHOLE DOCS / CROWNS IT MOTIVATES ME TO KEEP GOING 
   <p align="center">
-    <img width="250" src =https://github.com/user-attachments/assets/32a2826d-fcfa-4932-8e72-e1a88925e74c alt = ![1000910781]>
-    <img width="250" src=https://github.com/user-attachments/assets/427687e5-64c4-4662-919d-cefab8fbd662 alt=![1000910787]>
+    <img width="350" src ="https://github.com/user-attachments/assets/5685c909-a81f-4a48-af47-97cd6c84d775" alt= ![1000912916]>
     <p align="center">
-      THANK YOU SO KUCH FOR SHARING MY SHIP HERVIE ILY /P UR MY FIRST SUPPORTER ON TIKTOK ILL POST MORE
-      <p align="center">
-        <img width="350" src=https://github.com/user-attachments/assets/e83a3f42-8562-4c3b-b68e-ba4cda7f1ca3 alt=![1000911601]>
-        <p align="center">
-          thanks.. Joshua..
-           BRO HAD TO MAKE SURE SHES DEAD😭😭
+      WOAHH GUYS THANK YOU SO MUCH I DIDNT EXPECT TO BE THIS MANY AND GAIN LIKE 70 FOLLOWERS IN ONE DAY 😭😭❣️❣️
           <p align="center">
         <img width="350" src =https://github.com/user-attachments/assets/9026f827-10cd-4a2e-a66b-b9eed9cd7627 alt=![1000912019]>
   <p align="center">
