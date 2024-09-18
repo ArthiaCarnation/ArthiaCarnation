@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="300" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
+  <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
 </p>
 <p align="center">
   <img width="500" src="https://i.ibb.co/5RM78ym/Untitled137-20240917013024-1.webp">
@@ -30,8 +30,9 @@ OUR PROMISE  ┊ FULL STORY ┊ TIKTOK ┊ FANARTS ┊ DESIGN/BODY ┊ GUESTBOOK
       <p align="center">
 𝗩𝗲𝗻𝘁𝗵𝗶𝗮
           <p align="center">
-             <img width=300" src="">
-             <img width="290" src=https://i.ibb.co/pbsr3s1/Venti-Icon.webp">
+             <img width=300" src="https://github.com/user-attachments/assets/79a323b5-f211-4e89-8523-af4192496e58" alt =![1000913030]>
+">
+             <img width="300" src=https://i.ibb.co/pbsr3s1/Venti-Icon.webp">
                 <p align="center"> 
                           <img width="170" src= https://github.com/user-attachments/assets/bafa018c-c7a0-43d8-be77-e921073dd593 alt= ![pony-town-to love and to be loved-lie-blinking-padded-4x]>
              <img width="170" src="https://github.com/user-attachments/assets/947147e8-1ec9-486a-b29c-3ee49621190c" alt = ![pony-town-Ethereal Queen ! OG_NO INSPO-sit-blinking-padded-ponyplush-4x]>
