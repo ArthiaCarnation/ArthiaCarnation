@@ -30,8 +30,7 @@ OUR PROMISE  ┊ FULL STORY ┊ TIKTOK ┊ FANARTS ┊ DESIGN/BODY ┊ GUESTBOOK
       <p align="center">
 𝗩𝗲𝗻𝘁𝗵𝗶𝗮
           <p align="center">
-             <img width=300" src="https://github.com/user-attachments/assets/79a323b5-f211-4e89-8523-af4192496e58" alt =![1000913030]>
-">
+             <img width=300" src="https://github.com/user-attachments/assets/a499b20c-da62-4bef-9178-c8f1bad0c8a0" alt =![1000913031]>
              <img width="300" src=https://i.ibb.co/pbsr3s1/Venti-Icon.webp">
                 <p align="center"> 
                           <img width="170" src= https://github.com/user-attachments/assets/bafa018c-c7a0-43d8-be77-e921073dd593 alt= ![pony-town-to love and to be loved-lie-blinking-padded-4x]>
