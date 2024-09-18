@@ -1,7 +1,8 @@
-
+<p align="center">
+  <img width="500" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
 </p>
 <p align="center">
-  <img width="600" src="https://i.ibb.co/5RM78ym/Untitled137-20240917013024-1.webp">
+  <img width="500" src="https://i.ibb.co/5RM78ym/Untitled137-20240917013024-1.webp">
 </p>
 <p align="center">
 <p align="center">
@@ -19,7 +20,7 @@
                           <p align="Center">
                         𝘈𝘥𝘳𝘦𝘴𝘴𝘦𝘥 𝘢𝘴  "𝙈𝙮/𝙔𝙤𝙪𝙧 𝙋𝙧𝙞𝙢𝙖𝙘𝙮" , "𝙌𝙪𝙚𝙚𝙣 𝙑𝙖𝙡𝙚𝙧" , "𝘿𝙞𝙫𝙞𝙣𝙚 𝙈𝙤𝙩𝙝𝙚𝙧" , "𝙈𝙮 𝙂𝙤𝙙𝙙𝙚𝙨𝙨"
                              <p align="center">
-OUR PROMISE  ┊ FULL STORY ┊ TIKTOK ┊ FANARTS ┊ DESIGN/BODY    
+OUR PROMISE  ┊ FULL STORY ┊ TIKTOK ┊ FANARTS ┊ DESIGN/BODY ┊ GUESTBOOK
      <p align="center">
                      ────୨ৎ────
   <p align="center">
@@ -29,10 +30,14 @@ OUR PROMISE  ┊ FULL STORY ┊ TIKTOK ┊ FANARTS ┊ DESIGN/BODY
       <p align="center">
 𝗩𝗲𝗻𝘁𝗵𝗶𝗮
           <p align="center">
-             <img width="200" src= https://github.com/user-attachments/assets/bafa018c-c7a0-43d8-be77-e921073dd593 alt= ![pony-town-to love and to be loved-lie-blinking-padded-4x]>
-             <img width="200" src="https://github.com/user-attachments/assets/947147e8-1ec9-486a-b29c-3ee49621190c" alt = ![pony-town-Ethereal Queen ! OG_NO INSPO-sit-blinking-padded-ponyplush-4x]>
-      <p align="center">
-  <img width="200" src="https://github.com/user-attachments/assets/d3a0ed92-b5a6-48df-83eb-e8bb29703a0b" alt = ![IMG_9430]>
+             <img width=300" src="">
+             <img width="290" src=https://i.ibb.co/pbsr3s1/Venti-Icon.webp">
+                <p align="center"> 
+                          <img width="170" src= https://github.com/user-attachments/assets/bafa018c-c7a0-43d8-be77-e921073dd593 alt= ![pony-town-to love and to be loved-lie-blinking-padded-4x]>
+             <img width="170" src="https://github.com/user-attachments/assets/947147e8-1ec9-486a-b29c-3ee49621190c" alt = ![pony-town-Ethereal Queen ! OG_NO INSPO-sit-blinking-padded-ponyplush-4x]>
+   <p align="center">
+     PLAYLIST (soon)
+  JAMES ARTHUR, ONE DIRECTION , BRUNO MARS , FRANK SINATARA
+             <p align="center">
+𝗧𝗛𝗔𝗡𝗞 𝗬𝗢𝗨 𝗧𝗢 : 𝗫𝗲𝗻𝗲𝗹𝗲𝘀𝘀 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗳𝗿𝗮𝗺𝗲 𝗲𝗱𝗶𝘁 , 𝗬𝘂𝗶𝗸𝗮𝗮𝗮𝗿𝘁 𝗼𝗻 𝗶𝗻𝘀𝘁𝗮 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗮𝗿𝘁 , 𝗘𝗵𝗿𝗹𝗶𝗮 𝗱𝗶𝘀𝗰 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗼𝘁𝗵𝗲𝗿 𝗮𝗿𝘁
 <p align="center">
-  <img width="400" src="https://i.ibb.co/Px0Ff8s/Untitled137-20240917002854.webp">
-  <p align="center">
