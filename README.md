@@ -1,5 +1,7 @@
 <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
+  <p align="center">
+" ᴛʜᴇ ᴘʀᴏᴍɪꜱᴇ ᴡᴇ ᴍᴀᴅᴇ. "
 </p>
 <p align="center">
   <img width="500" src="https://i.ibb.co/5RM78ym/Untitled137-20240917013024-1.webp">
@@ -12,7 +14,7 @@
     <p align="center">
                    ⌞ 𝐒𝐡𝐞 / 𝐡𝐞𝐫 ⌟
                    <p align="Center">
-𝘗𝘳𝘦𝘭𝘪𝘮𝘪𝘯𝘢𝘳𝘺 ┊ 𝘌𝘵𝘩𝘦𝘳𝘦𝘢𝘭 𝘉𝘦𝘢𝘶𝘵𝘺 ┊ 𝘎𝘰𝘥𝘥𝘦𝘴𝘴 𝘰𝘧 𝘗𝘳𝘰𝘮𝘪𝘴𝘦𝘴 - 𝘋𝘦𝘷𝘰𝘵𝘪𝘰𝘯 , 𝘍𝘢𝘪𝘵𝘩 , 𝘏𝘰𝘱𝘦 ┊ 𝘘𝘶𝘦𝘦𝘯 𝘰𝘧 𝘌𝘵𝘩𝘺𝘭𝘦𝘯𝘢 𝘝𝘢𝘭𝘦𝘳 ┊ 𝘋𝘦𝘴𝘤𝘦𝘯𝘥𝘦𝘳 𝘎𝘰𝘥𝘥𝘦𝘴𝘴 ┊ 𝘔𝘰𝘵𝘩𝘦𝘳'𝘴 𝘓𝘰𝘷𝘦 ┊ Damsel distress
+𝘗𝘳𝘦𝘭𝘪𝘮𝘪𝘯𝘢𝘳𝘺 ┊ 𝘌𝘵𝘩𝘦𝘳𝘦𝘢𝘭 𝘉𝘦𝘢𝘶𝘵𝘺 ┊ 𝘎𝘰𝘥𝘥𝘦𝘴𝘴 𝘰𝘧 𝘗𝘳𝘰𝘮𝘪𝘴𝘦𝘴 - 𝘋𝘦𝘷𝘰𝘵𝘪𝘰𝘯 , 𝘍𝘢𝘪𝘵𝘩 , 𝘏𝘰𝘱𝘦 ┊ 𝘘𝘶𝘦𝘦𝘯 𝘰𝘧 𝘌𝘵𝘩𝘺𝘭𝘦𝘯𝘢 𝘝𝘢𝘭𝘦𝘳 ┊ 𝘋𝘦𝘴𝘤𝘦𝘯𝘥𝘦𝘳 𝘎𝘰𝘥𝘥𝘦𝘴𝘴 ┊ 𝘔𝘰𝘵𝘩𝘦𝘳'𝘴 𝘓𝘰𝘷𝘦 
                       <p align="Center">
               𝘐𝘯𝘴𝘱𝘪𝘳𝘦𝘥 : 𝘍𝘭𝘰𝘳𝘺𝘯 𝘔𝘭𝘣𝘣(𝘍𝘦𝘢𝘵𝘶𝘳𝘦𝘴/personality) , 𝘙𝘰𝘴𝘦𝘘𝘶𝘢𝘵𝘻 / 𝘗𝘪𝘯𝘬 𝘋𝘪𝘢𝘮𝘰𝘯𝘥(𝘝𝘰𝘪𝘤𝘦/personality) , 𝘈𝘵𝘩𝘦𝘯𝘢/Greek(𝘊𝘭𝘰𝘵𝘩𝘦𝘴/personality)
                            <p align="Center">
