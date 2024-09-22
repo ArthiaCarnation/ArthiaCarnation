@@ -33,6 +33,7 @@ OUR PROMISE  ┊ FULL STORY ┊ TIKTOK ┊ FANARTS ┊ DESIGN/BODY ┊ GUESTBOOK
 𝗩𝗲𝗻𝘁𝗵𝗶𝗮
           <p align="center">
             <img width=250" src="https://github.com/user-attachments/assets/76645400-b68d-468d-9969-877f4d4e818c" alt = ![1000913148]>
+                <p align="center">
              <img width=350" src="https://github.com/user-attachments/assets/a499b20c-da62-4bef-9178-c8f1bad0c8a0" alt =![1000913031]>
              <img width="300" src=https://i.ibb.co/pbsr3s1/Venti-Icon.webp">
                 <p align="center"> 
