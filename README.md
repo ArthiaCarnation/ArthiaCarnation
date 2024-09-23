@@ -45,3 +45,31 @@ OUR PROMISE  ┊ FULL STORY ┊ TIKTOK ┊ FANARTS ┊ DESIGN/BODY ┊ GUESTBOOK
              <p align="center">
 𝗧𝗛𝗔𝗡𝗞 𝗬𝗢𝗨 𝗧𝗢 : 𝗫𝗲𝗻𝗲𝗹𝗲𝘀𝘀 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗳𝗿𝗮𝗺𝗲 𝗲𝗱𝗶𝘁 , 𝗬𝘂𝗶𝗸𝗮𝗮𝗮𝗿𝘁 𝗼𝗻 𝗶𝗻𝘀𝘁𝗮 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗮𝗿𝘁 , 𝗘𝗵𝗿𝗹𝗶𝗮 𝗱𝗶𝘀𝗰 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗼𝘁𝗵𝗲𝗿 𝗮𝗿𝘁 , THE PIXEL IS STILL A WIL FROM KAOI PLSS I LOVE IT SM
 <p align="center">
+  STILL A WIP 
+<p align="center">
+Arven Valen
+2023 around Setempber ✦ age: 50 - 900+. ˚ ✦ Dec 6. ˚ ✦ 150cm
+the next throne to Ethylena Valer kingdom , The Serenity Prince of light , Arthia/Venti youngest child , God of law and order / sun / light
+symbol : Sun / lion
+ Nationality : Romanian / italian  / european 
+inspo : Fushi , Harith , calassendra 
+
+Seven / Anales
+May 16 2020 ✦ age: 98 - 1000+. ˚ ✦ March 30. ˚ ✦ 149cm , 7'1 
+Lost Widsom , god of wisdom and knowledge , Arthia/venti Middle child
+symbol : Pen
+nationality  : German
+inspo : tbhk tsukasa , camilo
+
+Maverick Kenzo de fil Vermilion
+
+June 2023 ✦ age: 2000˚ ✦ Dec 7 ✦ ( I FORGOT)
+God of perfection , beauty and judgment , Arthia/venti Oldest child , Ruler of Maruyan
+Symbol: Lotus
+Nationality : Egyptian , switzerland , european
+inspo : 
+
+
+
+
+
