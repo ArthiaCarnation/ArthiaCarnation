@@ -41,7 +41,7 @@ OUR PROMISE  ┊ FULL STORY ┊ TIKTOK ┊ FANARTS ┊ DESIGN/BODY ┊ GUESTBOOK
              <img width="170" src="https://github.com/user-attachments/assets/947147e8-1ec9-486a-b29c-3ee49621190c" alt = ![pony-town-Ethereal Queen ! OG_NO INSPO-sit-blinking-padded-ponyplush-4x]>
    <p align="center">
      PLAYLIST (soon)
-  JAMES ARTHUR, ONE DIRECTION , BRUNO MARS , FRANK SINATARA
+  JAMES ARTHUR, ONE DIRECTION , BRUNO MARS , FRANK SINATARA , REX ORANGE COUNTRY
              <p align="center">
 𝗧𝗛𝗔𝗡𝗞 𝗬𝗢𝗨 𝗧𝗢 : 𝗫𝗲𝗻𝗲𝗹𝗲𝘀𝘀 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗳𝗿𝗮𝗺𝗲 𝗲𝗱𝗶𝘁 , 𝗬𝘂𝗶𝗸𝗮𝗮𝗮𝗿𝘁 𝗼𝗻 𝗶𝗻𝘀𝘁𝗮 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗮𝗿𝘁 , 𝗘𝗵𝗿𝗹𝗶𝗮 𝗱𝗶𝘀𝗰 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗼𝘁𝗵𝗲𝗿 𝗮𝗿𝘁 , THE PIXEL IS STILL A WIL FROM KAOI PLSS I LOVE IT SM
 <p align="center">
