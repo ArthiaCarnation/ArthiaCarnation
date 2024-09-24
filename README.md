@@ -34,7 +34,7 @@ OUR PROMISE  ┊ FULL STORY ┊ TIKTOK ┊ FANARTS ┊ DESIGN/BODY ┊ GUESTBOOK
           <p align="center">
             <img width=250" src="https://github.com/user-attachments/assets/76645400-b68d-468d-9969-877f4d4e818c" alt = ![1000913148]>
                 <p align="center">
-             <img width=350" src="https://github.com/user-attachments/assets/a499b20c-da62-4bef-9178-c8f1bad0c8a0" alt =![1000913031]>
+<img width=250" src="https://github.com/user-attachments/assets/83a98067-aabe-4cfa-83f1-5a3565bfa4a6" alt = ![1000913208]>
              <img width="300" src=https://i.ibb.co/pbsr3s1/Venti-Icon.webp">
                 <p align="center"> 
                           <img width="170" src= https://github.com/user-attachments/assets/bafa018c-c7a0-43d8-be77-e921073dd593 alt= ![pony-town-to love and to be loved-lie-blinking-padded-4x]>
@@ -43,7 +43,7 @@ OUR PROMISE  ┊ FULL STORY ┊ TIKTOK ┊ FANARTS ┊ DESIGN/BODY ┊ GUESTBOOK
      PLAYLIST (soon)
   JAMES ARTHUR, ONE DIRECTION , BRUNO MARS , FRANK SINATARA , REX ORANGE COUNTRY
              <p align="center">
-𝗧𝗛𝗔𝗡𝗞 𝗬𝗢𝗨 𝗧𝗢 : 𝗫𝗲𝗻𝗲𝗹𝗲𝘀𝘀 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗳𝗿𝗮𝗺𝗲 𝗲𝗱𝗶𝘁 , 𝗬𝘂𝗶𝗸𝗮𝗮𝗮𝗿𝘁 𝗼𝗻 𝗶𝗻𝘀𝘁𝗮 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗮𝗿𝘁 , 𝗘𝗵𝗿𝗹𝗶𝗮 𝗱𝗶𝘀𝗰 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗼𝘁𝗵𝗲𝗿 𝗮𝗿𝘁 , THE PIXEL IS STILL A WIL FROM KAOI PLSS I LOVE IT SM
+𝗧𝗛𝗔𝗡𝗞 𝗬𝗢𝗨 𝗧𝗢 : 𝗫𝗲𝗻𝗲𝗹𝗲𝘀𝘀 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗳𝗿𝗮𝗺𝗲 𝗲𝗱𝗶𝘁 , 𝗬𝘂𝗶𝗸𝗮𝗮𝗮𝗿𝘁 𝗼𝗻 𝗶𝗻𝘀𝘁𝗮 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗮𝗿𝘁 , 𝗘𝗵𝗿𝗹𝗶𝗮 𝗱𝗶𝘀𝗰 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗼𝘁𝗵𝗲𝗿 𝗮𝗿𝘁 , THE PIXEL IS STILL A WIL FROM KAOI PLSS I LOVE IT SM IM FIXING ARTHIA HAIR 
 <p align="center">
   STILL A WIP 
 <p align="center">
