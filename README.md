@@ -34,7 +34,7 @@ OUR PROMISE  ┊ FULL STORY ┊ TIKTOK ┊ FANARTS ┊ DESIGN/BODY ┊ GUESTBOOK
           <p align="center">
             <img width=250" src="https://github.com/user-attachments/assets/76645400-b68d-468d-9969-877f4d4e818c" alt = ![1000913148]>
                 <p align="center">
-<img width=250" src="https://github.com/user-attachments/assets/83a98067-aabe-4cfa-83f1-5a3565bfa4a6" alt = ![1000913208]>
+<img width="350" src="https://github.com/user-attachments/assets/83a98067-aabe-4cfa-83f1-5a3565bfa4a6" alt = ![1000913208]>
              <img width="300" src=https://i.ibb.co/pbsr3s1/Venti-Icon.webp">
                 <p align="center"> 
                           <img width="170" src= https://github.com/user-attachments/assets/bafa018c-c7a0-43d8-be77-e921073dd593 alt= ![pony-town-to love and to be loved-lie-blinking-padded-4x]>
