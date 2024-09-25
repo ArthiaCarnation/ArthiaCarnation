@@ -36,9 +36,6 @@ OUR PROMISE  ┊ FULL STORY ┊ TIKTOK ┊ FANARTS ┊ DESIGN/BODY ┊ GUESTBOOK
                 <p align="center">
 <img width="350" src="https://github.com/user-attachments/assets/83a98067-aabe-4cfa-83f1-5a3565bfa4a6" alt = ![1000913208]>
              <img width="300" src=https://i.ibb.co/pbsr3s1/Venti-Icon.webp">
-                <p align="center"> 
-                          <img width="170" src= https://github.com/user-attachments/assets/bafa018c-c7a0-43d8-be77-e921073dd593 alt= ![pony-town-to love and to be loved-lie-blinking-padded-4x]>
-             <img width="170" src="https://github.com/user-attachments/assets/947147e8-1ec9-486a-b29c-3ee49621190c" alt = ![pony-town-Ethereal Queen ! OG_NO INSPO-sit-blinking-padded-ponyplush-4x]>
    <p align="center">
      PLAYLIST (soon)
   JAMES ARTHUR, ONE DIRECTION , BRUNO MARS , FRANK SINATARA , REX ORANGE COUNTRY
