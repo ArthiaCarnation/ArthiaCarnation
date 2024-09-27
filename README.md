@@ -34,10 +34,10 @@ OUR PROMISE  ┊ FULL STORY ┊ TIKTOK ┊ FANARTS ┊ DESIGN/BODY ┊ GUESTBOOK
           <p align="center">
             <img width=250" src="https://github.com/user-attachments/assets/76645400-b68d-468d-9969-877f4d4e818c" alt = ![1000913148]>
                 <p align="center">
-<img width="350" src="https://github.com/user-attachments/assets/4f03fb9b-8e69-4269-ad28-2c2729e8469d" alt =![1000913509]>             <img width="300" src=https://i.ibb.co/pbsr3s1/Venti-Icon.webp">
+<img width="330" src="https://github.com/user-attachments/assets/4f03fb9b-8e69-4269-ad28-2c2729e8469d" alt =![1000913509]>             <img width="300" src=https://i.ibb.co/pbsr3s1/Venti-Icon.webp">
                   <p align="center">
-                    <img width="300" src="https://github.com/user-attachments/assets/83f56e64-a9e6-4b5a-a394-fc0cc5b826b3" alt= ![1000913506]>
-<img width="300" src="https://github.com/user-attachments/assets/e2fb9814-cc40-426b-972f-945a3586964d" alt= ![1000913511]>
+                    <img width="280" src="https://github.com/user-attachments/assets/83f56e64-a9e6-4b5a-a394-fc0cc5b826b3" alt= ![1000913506]>
+<img width="270" src="https://github.com/user-attachments/assets/e2fb9814-cc40-426b-972f-945a3586964d" alt= ![1000913511]>
    <p align="center">
      PLAYLIST (soon)
   JAMES ARTHUR, ONE DIRECTION , BRUNO MARS , FRANK SINATARA , REX ORANGE COUNTRY , ROD DANIEL
