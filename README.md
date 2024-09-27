@@ -39,34 +39,13 @@ OUR PROMISE  ┊ FULL STORY ┊ TIKTOK ┊ FANARTS ┊ DESIGN/BODY ┊ GUESTBOOK
                     <img width="280" src="https://github.com/user-attachments/assets/83f56e64-a9e6-4b5a-a394-fc0cc5b826b3" alt= ![1000913506]>
 <img width="270" src="https://github.com/user-attachments/assets/e2fb9814-cc40-426b-972f-945a3586964d" alt= ![1000913511]>
    <p align="center">
-     PLAYLIST (soon)
+      <video src="https://github.com/user-attachments/assets/f625782a-43aa-4178-858b-502c9472d12b" width=100 height=100/>
+               <p align="center">
+     PLAYLIST (soon) 
   JAMES ARTHUR, ONE DIRECTION , BRUNO MARS , FRANK SINATARA , REX ORANGE COUNTRY , ROD DANIEL
              <p align="center">
-𝗧𝗛𝗔𝗡𝗞 𝗬𝗢𝗨 𝗧𝗢 : 𝗫𝗲𝗻𝗲𝗹𝗲𝘀𝘀 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗳𝗿𝗮𝗺𝗲 𝗲𝗱𝗶𝘁 , 𝗬𝘂𝗶𝗸𝗮𝗮𝗮𝗿𝘁 𝗼𝗻 𝗶𝗻𝘀𝘁𝗮 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗮𝗿𝘁 , 𝗘𝗵𝗿𝗹𝗶𝗮 𝗱𝗶𝘀𝗰 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗼𝘁𝗵𝗲𝗿 𝗮𝗿𝘁 , THE PIXEL IS STILL A WIL FROM KAOI PLSS I LOVE IT SM 
-<p align="center">
-  STILL A WIP 
-<p align="center">
-Arven Valen
-2023 around Setempber ✦ age: 50 - 900+. ˚ ✦ Dec 6. ˚ ✦ 150cm
-the next throne to Ethylena Valer kingdom , The Serenity Prince of light , Arthia/Venti youngest child , God of law and order / sun / light
-symbol : Sun / lion
- Nationality : Romanian / italian  / european 
-inspo : Fushi , Harith , calassendra 
+𝗧𝗛𝗔𝗡𝗞 𝗬𝗢𝗨 𝗧𝗢 : 𝗫𝗲𝗻𝗲𝗹𝗲𝘀𝘀 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗳𝗿𝗮𝗺𝗲 𝗲𝗱𝗶𝘁 , 𝗬𝘂𝗶𝗸𝗮𝗮𝗮𝗿𝘁 𝗼𝗻 𝗶𝗻𝘀𝘁𝗮 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗮𝗿𝘁 , 𝗘𝗵𝗿𝗹𝗶𝗮 𝗱𝗶𝘀𝗰 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗼𝘁𝗵𝗲𝗿 𝗮𝗿𝘁 , THE PIXEL IS STILL A WIL FROM KAOI PLSS I LOVE IT SM , i want to thank you for everyone who supports me on tiktok and on pony town ill keep doing more ^_^ 12K VIEWS AND 1400 HEARTS THANK YOU SM
 
-Seven / Anales
-May 16 2020 ✦ age: 98 - 1000+. ˚ ✦ March 30. ˚ ✦ 149cm , 7'1 
-Lost Widsom , god of wisdom and knowledge , Arthia/venti Middle child
-symbol : Pen
-nationality  : German
-inspo : tbhk tsukasa , camilo
-
-Maverick Kenzo de fil Vermilion
-
-June 2023 ✦ age: 2000˚ ✦ Dec 7 ✦ ( I FORGOT)
-God of perfection , beauty and judgment , Arthia/venti Oldest child , Ruler of Maruyan
-Symbol: Lotus
-Nationality : Egyptian , switzerland , european
-inspo : 
 
 
 
