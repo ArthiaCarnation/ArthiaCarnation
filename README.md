@@ -1,4 +1,7 @@
 <p align="center">
+  <img width="200" src="https://github.com/user-attachments/assets/440bc626-a426-41f5-9a54-1063b1329a24" alt=![1000913545]>
+CHECK THEM OUT GUYS THEY ARE VERY SUPPORTIVE 
+<p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
 " ᴛʜᴇ ᴘʀᴏᴍɪꜱᴇ ᴡᴇ ᴍᴀᴅᴇ. "
