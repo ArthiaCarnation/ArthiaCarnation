@@ -43,6 +43,9 @@ OUR PROMISE  ┊ FULL STORY ┊ TIKTOK ┊ FANARTS ┊ DESIGN/BODY ┊ GUESTBOOK
                   <p align="center">
                     <img width="280" src="https://github.com/user-attachments/assets/83f56e64-a9e6-4b5a-a394-fc0cc5b826b3" alt= ![1000913506]>
 <img width="270" src="https://github.com/user-attachments/assets/e2fb9814-cc40-426b-972f-945a3586964d" alt= ![1000913511]>
+                      <p align="center">
+                         <img width="200" src="https://github.com/user-attachments/assets/a3bebbc5-6a87-4834-b764-8f0d3c4715ad" alt = ![pony-town-Pink lemonade Arthia 🍋 DNC_OG-boop-sit-blinking-padded-4x]>
+                          <img width="200" src="https://github.com/user-attachments/assets/92a7f61f-0895-486a-800a-d03baf657cc8" alt = ![pony-town-♫ 🌷Forever devout Arthia-boop-lie-blinking-padded-4x]>
    <p align="center">
       <video src="https://github.com/user-attachments/assets/f625782a-43aa-4178-858b-502c9472d12b" width=100 height=100/>
                <p align="center">
