@@ -1,9 +1,4 @@
 <p align="center">
-  <img width="300" src="https://github.com/user-attachments/assets/440bc626-a426-41f5-9a54-1063b1329a24" alt=![1000913545]>
-CHECK THEM OUT GUYS THEY ARE VERY SUPPORTIVE 
-  <img width="300" src =https://github.com/user-attachments/assets/4797c2f9-7dbb-489a-acb7-502bf3f595cf alt= ![1000913558]>
-  THANK YOU TO VETHER ALSO YIPEE , ILL SRS NEED TO MAKE FANART REENTRY 
-<p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
 " ᴛʜᴇ ᴘʀᴏᴍɪꜱᴇ ᴡᴇ ᴍᴀᴅᴇ. "
@@ -27,7 +22,7 @@ CHECK THEM OUT GUYS THEY ARE VERY SUPPORTIVE
                           <p align="Center">
                         𝘈𝘥𝘳𝘦𝘴𝘴𝘦𝘥 𝘢𝘴  "𝙈𝙮/𝙔𝙤𝙪𝙧 𝙋𝙧𝙞𝙢𝙖𝙘𝙮" , "𝙌𝙪𝙚𝙚𝙣 𝙑𝙖𝙡𝙚𝙧" , "𝘿𝙞𝙫𝙞𝙣𝙚 𝙈𝙤𝙩𝙝𝙚𝙧" , "𝙈𝙮 𝙂𝙤𝙙𝙙𝙚𝙨𝙨"
                              <p align="center">
-OUR PROMISE  ┊ FULL STORY ┊ TIKTOK ┊ FANARTS ┊ DESIGN/BODY ┊ GUESTBOOK
+ <a href="https://www.wattpad.com/story/323288900-%F0%9D%98%96%F0%9D%98%9C%F0%9D%98%99-%F0%9D%98%97%F0%9D%98%99%F0%9D%98%96%F0%9D%98%94%F0%9D%98%90%F0%9D%98%9A%F0%9D%98%8C"target="[M]"<strong>OUR PROMISE</strong></a>  ┊ <a href="https://docs.google.com/document/d/1wBdXhBk2eQbA9E1O0kaiypLBxa3pdEedJDQXsvM2sRs/edit?usp=sharing"target="[M]"<strong>FULL STORY</strong></a> ┊ <a href="https://www.tiktok.com/@arthiaspromise"target="[M]"<strong>TIKTOK</strong></a> ┊  <a href="https://rentry.co/ArthiaFan" target="[M]"<strong>FANARTS</strong></a>   ┊ DESIGN/BODY ┊ <a href="https://primacyarthia.atabook.org/" target="[M]"<strong>GUESTBOOK</strong></a>
      <p align="center">
                      ────୨ৎ────
   <p align="center">
