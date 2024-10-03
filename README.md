@@ -17,7 +17,9 @@
                    <p align="Center">
 𝘗𝘳𝘦𝘭𝘪𝘮𝘪𝘯𝘢𝘳𝘺 ┊ 𝘌𝘵𝘩𝘦𝘳𝘦𝘢𝘭 𝘉𝘦𝘢𝘶𝘵𝘺 ┊ 𝘎𝘰𝘥𝘥𝘦𝘴𝘴 𝘰𝘧 𝘗𝘳𝘰𝘮𝘪𝘴𝘦𝘴 - 𝘋𝘦𝘷𝘰𝘵𝘪𝘰𝘯 , 𝘍𝘢𝘪𝘵𝘩 , 𝘏𝘰𝘱𝘦 ┊ 𝘘𝘶𝘦𝘦𝘯 𝘰𝘧 𝘌𝘵𝘩𝘺𝘭𝘦𝘯𝘢 𝘝𝘢𝘭𝘦𝘳 ┊ 𝘋𝘦𝘴𝘤𝘦𝘯𝘥𝘦𝘳 𝘎𝘰𝘥𝘥𝘦𝘴𝘴 ┊ 𝘔𝘰𝘵𝘩𝘦𝘳'𝘴 𝘓𝘰𝘷𝘦 
                       <p align="Center">
-              𝘐𝘯𝘴𝘱𝘪𝘳𝘦𝘥 : 𝘍𝘭𝘰𝘳𝘺𝘯 𝘔𝘭𝘣𝘣(𝘍𝘦𝘢𝘵𝘶𝘳𝘦𝘴) , 𝘙𝘰𝘴𝘦𝘘𝘶𝘢𝘵𝘻 / 𝘗𝘪𝘯𝘬 𝘋𝘪𝘢𝘮𝘰𝘯𝘥 SU (𝘝𝘰𝘪𝘤𝘦/personality) , 𝘈𝘵𝘩𝘦𝘯𝘢/Greek(𝘊𝘭𝘰𝘵𝘩𝘦s) , Queen White Alice in the Wonderland (features/personality) , Princess bubblegum (Personality) , fei sei tower of fantasy (Gameplay)
+              𝘐𝘯𝘴𝘱𝘪𝘳𝘦𝘥 
+                            <p align="Center">
+                        <img width="140" src ="https://github.com/user-attachments/assets/c46425f4-cf31-4bb9-b82e-9fb7390dec54" alt = ![mlbb]> ┊ <img width="110" src ="https://github.com/user-attachments/assets/c916eddd-9600-49bd-bccb-0e4b78403801" alt= ![steven-universe-rose-quartz]> ┊ <img width="137" src ="https://media1.tenor.com/m/S6evW7bTF8AAAAAd/fei-se-dancing.gif"> ┊ <img width="118" src ="https://i.pinimg.com/originals/c6/df/f4/c6dff4fc260864f6cbd52f494b836dea.gif"> ┊  <img width="110" src = "https://media1.tenor.com/m/Ecs7LmY-6kkAAAAC/adventure-time-princess-bubblegum.gif"> 
                            <p align="Center">
                   𝘗𝘦𝘳𝘴𝘰𝘯𝘢𝘭𝘪𝘵𝘺 : 𝘐𝘕𝘍𝘑 - 𝘈 / INFP , 𝘗𝘦𝘳𝘧𝘦𝘤𝘵𝘪𝘰𝘯𝘪𝘴𝘵 , 𝘞𝘰𝘳𝘬𝘢𝘩𝘰𝘭𝘪𝘤 , 𝘈𝘮𝘣𝘪𝘵𝘪𝘰𝘶𝘴 , 𝘌𝘮𝘰𝘵𝘪𝘰𝘯𝘢𝘭 𝘴𝘦𝘭𝘧-𝘳𝘦𝘨𝘶𝘭𝘢𝘵𝘪𝘰𝘯 , 𝘌𝘮𝘱𝘢𝘵𝘩𝘺/𝘜𝘯𝘥𝘦𝘳𝘴𝘵𝘢𝘯𝘥𝘪𝘯𝘨
                           <p align="Center">
@@ -46,8 +48,6 @@
                          <img width="200" src="https://github.com/user-attachments/assets/a3bebbc5-6a87-4834-b764-8f0d3c4715ad" alt = ![pony-town-Pink lemonade Arthia 🍋 DNC_OG-boop-sit-blinking-padded-4x]>
                           <img width="200" src="https://github.com/user-attachments/assets/92a7f61f-0895-486a-800a-d03baf657cc8" alt = ![pony-town-♫ 🌷Forever devout Arthia-boop-lie-blinking-padded-4x]>
    <p align="center">
-      <video src="https://github.com/user-attachments/assets/f625782a-43aa-4178-858b-502c9472d12b" width=100 height=100/>
-               <p align="center">
      PLAYLIST (soon) 
   JAMES ARTHUR, ONE DIRECTION , BRUNO MARS , FRANK SINATARA , REX ORANGE COUNTRY , ROD DANIEL
              <p align="center">
