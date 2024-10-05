@@ -25,7 +25,7 @@
                           <p align="Center">
                         𝘈𝘥𝘳𝘦𝘴𝘴𝘦𝘥 𝘢𝘴  "𝙈𝙮/𝙔𝙤𝙪𝙧 𝙋𝙧𝙞𝙢𝙖𝙘𝙮" , "𝙌𝙪𝙚𝙚𝙣 𝙑𝙖𝙡𝙚𝙧" , "𝘿𝙞𝙫𝙞𝙣𝙚 𝙈𝙤𝙩𝙝𝙚𝙧" , "𝙈𝙮 𝙂𝙤𝙙𝙙𝙚𝙨𝙨"
                              <p align="center">
- <a href="https://www.wattpad.com/story/323288900-%F0%9D%98%96%F0%9D%98%9C%F0%9D%98%99-%F0%9D%98%97%F0%9D%98%99%F0%9D%98%96%F0%9D%98%94%F0%9D%98%90%F0%9D%98%9A%F0%9D%98%8C"target="[M]"<strong>OUR PROMISE</strong></a>  ┊ <a href="https://docs.google.com/document/d/1wBdXhBk2eQbA9E1O0kaiypLBxa3pdEedJDQXsvM2sRs/edit?usp=sharing"target="[M]"<strong>FULL STORY</strong></a> ┊ <a href="https://www.tiktok.com/@arthiaspromise"target="[M]"<strong>TIKTOK</strong></a> ┊  <a href="https://rentry.co/ArthiaFan" target="[M]"<strong>FANARTS</strong></a>   ┊ DESIGN/BODY ┊ <a href="https://primacyarthia.atabook.org/" target="[M]"<strong>GUESTBOOK</strong></a>
+ <a href="https://www.wattpad.com/story/323288900-%F0%9D%98%96%F0%9D%98%9C%F0%9D%98%99-%F0%9D%98%97%F0%9D%98%99%F0%9D%98%96%F0%9D%98%94%F0%9D%98%90%F0%9D%98%9A%F0%9D%98%8C"target="[M]"<strong>OUR PROMISE</strong></a>  ┊ <a href="https://docs.google.com/document/d/1wBdXhBk2eQbA9E1O0kaiypLBxa3pdEedJDQXsvM2sRs/edit?usp=sharing"target="[M]"<strong>DETAILS</strong></a>┊ <a href="https://docs.google.com/document/d/1NAeA-cdhXMzTIlaupP4AoiWuDGIXzUvRMfoeL7D1xoA/edit?usp=sharing"target="[M]"<strong>FULL STORY / PROGRESS</strong></a>  ┊ <a href="https://www.tiktok.com/@arthiaspromise"target="[M]"<strong>TIKTOK</strong></a> ┊  <a href="https://rentry.co/ArthiaFan" target="[M]"<strong>FANARTS</strong></a>   ┊ DESIGN/BODY ┊ <a href="https://primacyarthia.atabook.org/" target="[M]"<strong>GUESTBOOK</strong></a> 
      <p align="center">
                      ────୨ৎ────
   <p align="center">
