@@ -44,6 +44,8 @@
                   <p align="center">
                     <img width="280" src="https://github.com/user-attachments/assets/83f56e64-a9e6-4b5a-a394-fc0cc5b826b3" alt= ![1000913506]>
 <img width="270" src="https://github.com/user-attachments/assets/e2fb9814-cc40-426b-972f-945a3586964d" alt= ![1000913511]>
+                    <p align="center">
+                     <img width="210" src="https://github.com/user-attachments/assets/92145461-bc8f-4779-8f15-9faaa16d4247" alt= ![1000913826]>
                       <p align="center">
                          <img width="200" src="https://github.com/user-attachments/assets/a3bebbc5-6a87-4834-b764-8f0d3c4715ad" alt = ![pony-town-Pink lemonade Arthia 🍋 DNC_OG-boop-sit-blinking-padded-4x]>
                           <img width="200" src="https://github.com/user-attachments/assets/92a7f61f-0895-486a-800a-d03baf657cc8" alt = ![pony-town-♫ 🌷Forever devout Arthia-boop-lie-blinking-padded-4x]>
@@ -51,8 +53,7 @@
      PLAYLIST (soon) 
   JAMES ARTHUR, ONE DIRECTION , BRUNO MARS , FRANK SINATARA , REX ORANGE COUNTRY , ROD DANIEL
              <p align="center">
-𝗧𝗛𝗔𝗡𝗞 𝗬𝗢𝗨 𝗧𝗢 : 𝗫𝗲𝗻𝗲𝗹𝗲𝘀𝘀 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗳𝗿𝗮𝗺𝗲 𝗲𝗱𝗶𝘁 , 𝗬𝘂𝗶𝗸𝗮𝗮𝗮𝗿𝘁 𝗼𝗻 𝗶𝗻𝘀𝘁𝗮 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗮𝗿𝘁 , 𝗘𝗵𝗿𝗹𝗶𝗮 𝗱𝗶𝘀𝗰 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗼𝘁𝗵𝗲𝗿 𝗮𝗿𝘁 , THANK YOU SO MUCH FOR THE PIXEL KAO!! , i want to thank you for everyone who supports me on tiktok and on pony town ill keep doing more ^_^ 12K VIEWS AND 1400 HEARTS THANK YOU SM
-
+𝗧𝗛𝗔𝗡𝗞 𝗬𝗢𝗨 𝗧𝗢 : 𝗫𝗲𝗻𝗲𝗹𝗲𝘀𝘀 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗳𝗿𝗮𝗺𝗲 𝗲𝗱𝗶𝘁 , 𝗬𝘂𝗶𝗸𝗮𝗮𝗮𝗿𝘁 𝗼𝗻 𝗶𝗻𝘀𝘁𝗮 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗮𝗿𝘁 , 𝗘𝗵𝗿𝗹𝗶𝗮 𝗱𝗶𝘀𝗰 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗼𝘁𝗵𝗲𝗿 𝗮𝗿𝘁 , THANK YOU SO MUCH FOR THE PIXEL KAO!! , AND IZUMII SAN FOR VENTHIA ART!!
 
 
 
