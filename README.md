@@ -11,7 +11,7 @@
 <p align="center">
 𝘼𝙧𝙩𝙝𝙞𝙖 𝙑𝙖𝙡𝙙𝙚𝙧𝙣
 <p align="center">
-⌜ june 6 2023 age: 𝟑𝟎𝟎𝟎 - 𝟒𝟎𝟎𝟎. ˚ ✦ 𝐀𝐩𝐫𝐢𝐥  𝟑𝟎 . ˚ ✦ 𝟕'𝟏 -  𝟐𝟏𝟕𝐜𝐦 ˚ ✦  𝐆𝐫𝐞𝐞𝐜𝐞/𝐄𝐮𝐫𝐨𝐩𝐞𝐚𝐧 ⌝
+⌜ june 6 2023 age: 𝟑𝟎𝟎𝟎 - 𝟒𝟎𝟎𝟎. ˚ ✦ 𝐀𝐩𝐫𝐢𝐥  𝟑𝟎 . ˚ ✦ 6'6 ˚ ✦  𝐆𝐫𝐞𝐞𝐜𝐞/𝐄𝐮𝐫𝐨𝐩𝐞𝐚𝐧 ⌝
     <p align="center">
                    ⌞ 𝐒𝐡𝐞 / 𝐡𝐞𝐫 ⌟
                    <p align="Center">
@@ -41,13 +41,13 @@
             <p align="center">
               <img width="250" src ="https://github.com/user-attachments/assets/e976acd4-830a-45e6-9a49-69562a2423e6" alt=![1000913699]>
          <img width="253" src ="https://github.com/user-attachments/assets/db7d71bf-882f-4e65-aa45-b89715775b3f" alt =![1000913695]>
+                                  <p align="center">
+                     <img width="300" src="https://github.com/user-attachments/assets/92145461-bc8f-4779-8f15-9faaa16d4247" alt= ![1000913826]>
                 <p align="center">
 <img width="330" src="https://github.com/user-attachments/assets/4f03fb9b-8e69-4269-ad28-2c2729e8469d" alt =![1000913509]>             <img width="300" src=https://i.ibb.co/pbsr3s1/Venti-Icon.webp">
                   <p align="center">
                     <img width="280" src="https://github.com/user-attachments/assets/83f56e64-a9e6-4b5a-a394-fc0cc5b826b3" alt= ![1000913506]>
 <img width="270" src="https://github.com/user-attachments/assets/e2fb9814-cc40-426b-972f-945a3586964d" alt= ![1000913511]>
-                    <p align="center">
-                     <img width="240" src="https://github.com/user-attachments/assets/92145461-bc8f-4779-8f15-9faaa16d4247" alt= ![1000913826]>
                       <p align="center">
                          <img width="200" src="https://github.com/user-attachments/assets/a3bebbc5-6a87-4834-b764-8f0d3c4715ad" alt = ![pony-town-Pink lemonade Arthia 🍋 DNC_OG-boop-sit-blinking-padded-4x]>
                           <img width="200" src="https://github.com/user-attachments/assets/92a7f61f-0895-486a-800a-d03baf657cc8" alt = ![pony-town-♫ 🌷Forever devout Arthia-boop-lie-blinking-padded-4x]>
