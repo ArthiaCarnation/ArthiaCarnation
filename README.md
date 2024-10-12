@@ -31,7 +31,7 @@
   <p align="center">
 ʚ🌷🌺  x 🍃🍎ɞ
     <p align="center">
-𝐂𝐚𝐫𝐧𝐚𝐭𝐢𝐨𝐧 𝐱 𝐂𝐞𝐜𝐢𝐥𝐢𝐚 / 𝐀𝐫𝐭𝐡𝐢𝐚 𝐱 𝐕𝐞𝐧𝐭𝐢
+𝐂𝐚𝐫𝐧𝐚𝐭𝐢𝐨𝐧 𝐱 𝐂𝐞𝐜𝐢𝐥𝐢𝐚 / 𝐀𝐫𝐭𝐡𝐢𝐚 𝐱 𝐕𝐞𝐧𝐭𝐢 / WindLotus 
       <p align="center">
 𝗩𝗲𝗻𝘁𝗵𝗶𝗮
           <p align="center">
