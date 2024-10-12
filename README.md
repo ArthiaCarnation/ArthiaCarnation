@@ -35,7 +35,7 @@
       <p align="center">
 𝗩𝗲𝗻𝘁𝗵𝗶𝗮
         <p align="center">
-          PromiseWind / WindLotus / Appleblossom 
+          PromiseWind / WindLotus / AppleBlossom 
           <p align="center">
             <img width="250" src="https://github.com/user-attachments/assets/7912e46b-3214-4be5-8b2a-bb7b54045169" alt =![ezgif-7-f864e75b8b]>
             <p align="center">
