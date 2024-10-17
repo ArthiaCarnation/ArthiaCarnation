@@ -3,6 +3,10 @@
   <img width="200" src="https://github.com/user-attachments/assets/b9af4bfd-9ca8-4e8d-9083-3b0dd38a459f" alt = ![1000914545]">
   <p align="center">
   HEAVYY REPOST its to the point that most of my FRIENDS noticed it even strangers they inform me, i really do not know how to feel when it comes to this specially a whole familiarize of my OC appearance, lore or even doing things what i do the most for Arthia , its draining trying to be 'unique' but it also does motivated me to do a lot better to surpassed those things thanks for that 
+    <p align="center">
+  <img width="200" = src= "https://github.com/user-attachments/assets/caa83699-140a-42ef-afd4-68e3b092ef97" alt= ![1000914547]>
+      <p align="center">
+        him singing for Arthia :3 practice drawing MY ART
 <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
