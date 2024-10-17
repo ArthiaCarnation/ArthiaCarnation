@@ -1,8 +1,4 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation)
-<p align="center">
-  <img width="300" src="https://github.com/user-attachments/assets/b9af4bfd-9ca8-4e8d-9083-3b0dd38a459f" alt = ![1000914545]">
-  <p align="center">
-  HEAVYY REPOST its to the point that most of my FRIENDS noticed it even strangers they inform me, i really do not know how to feel when it comes to this specially a whole familiarize of my OC appearance, lore or even doing things what i do the most for Arthia , its draining trying to be 'unique' but it also does motivated me to do a lot better to surpassed those things thanks for that 
     <p align="center">
   <img width="400" = src= "https://github.com/user-attachments/assets/b351f841-aa32-4bed-8380-dc42b1e13f00" alt= ![1000914548]>
       <p align="center">
