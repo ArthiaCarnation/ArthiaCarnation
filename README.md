@@ -6,7 +6,7 @@
     <p align="center">
   <img width="200" = src= "https://github.com/user-attachments/assets/b351f841-aa32-4bed-8380-dc42b1e13f00" alt= ![1000914548]>
       <p align="center">
-        him singing for Arthia :3 practice drawing MY ART
+        him singing for Arthia :3 practice drawing MY ART , THE URGGEEE TO POST MY UNFINISHED ART I CANT LEAK IT
 <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
