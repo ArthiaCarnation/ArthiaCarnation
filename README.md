@@ -1,6 +1,8 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation)
  <p align="center">
        <img width="500" src="https://github.com/user-attachments/assets/b7742a38-984b-43b1-a40b-20a85b0fc889" alt = ![Screenshot_8]>
+   <p align="center">
+    <img width="500" src="https://github.com/user-attachments/assets/4b948c35-dea4-408b-8671-51e8f87302aa" alt= ![1000914714]>
     <p align="center">
   <img width="400" src= "https://github.com/user-attachments/assets/b351f841-aa32-4bed-8380-dc42b1e13f00" alt= ![1000914548]>
       <p align="center">
