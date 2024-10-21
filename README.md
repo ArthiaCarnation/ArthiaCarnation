@@ -27,7 +27,7 @@ i hate their relationship sm
                            <p align="Center">
                   𝘗𝘦𝘳𝘴𝘰𝘯𝘢𝘭𝘪𝘵𝘺 : 𝘐𝘕𝘍𝘑 - 𝘈 / INFP , 𝘗𝘦𝘳𝘧𝘦𝘤𝘵𝘪𝘰𝘯𝘪𝘴𝘵 , 𝘞𝘰𝘳𝘬𝘢𝘩𝘰𝘭𝘪𝘤 , 𝘈𝘮𝘣𝘪𝘵𝘪𝘰𝘶𝘴 , 𝘌𝘮𝘰𝘵𝘪𝘰𝘯𝘢𝘭 𝘴𝘦𝘭𝘧-𝘳𝘦𝘨𝘶𝘭𝘢𝘵𝘪𝘰𝘯 , 𝘌𝘮𝘱𝘢𝘵𝘩𝘺/𝘜𝘯𝘥𝘦𝘳𝘴𝘵𝘢𝘯𝘥𝘪𝘯𝘨
                           <p align="Center">
-                        𝘈𝘥𝘳𝘦𝘴𝘴𝘦𝘥 𝘢𝘴  "𝙈𝙮/𝙔𝙤𝙪𝙧 𝙋𝙧𝙞𝙢𝙖𝙘𝙮" , "𝙌𝙪𝙚𝙚𝙣 𝙑𝙖𝙡𝙚𝙧" , "𝘿𝙞𝙫𝙞𝙣𝙚 𝙈𝙤𝙩𝙝𝙚𝙧" , "𝙈𝙮 𝙂𝙤𝙙𝙙𝙚𝙨𝙨"
+                        𝘈𝘥𝘳𝘦𝘴𝘴𝘦𝘥 𝘢𝘴  "𝙈𝙮/𝙔𝙤𝙪𝙧 𝙋𝙧𝙞𝙢𝙖𝙘𝙮" , "𝙌𝙪𝙚𝙚𝙣 𝙑𝙖𝙡𝙚𝙧" , "𝙈𝙮 𝙂𝙤𝙙𝙙𝙚𝙨𝙨"
                              <p align="Center">
                               Specialist Drink : Pink Lemonade ( Vow Renewal ) 
                              <p align="center">
