@@ -43,8 +43,6 @@
             <p align="center">
               <img width="250" src ="https://github.com/user-attachments/assets/e976acd4-830a-45e6-9a49-69562a2423e6" alt=![1000913699]>
          <img width="253" src ="https://github.com/user-attachments/assets/db7d71bf-882f-4e65-aa45-b89715775b3f" alt =![1000913695]>
-                                  <p align="center">
-                     <img width="300" src="https://github.com/user-attachments/assets/92145461-bc8f-4779-8f15-9faaa16d4247" alt= ![1000913826]>
                 <p align="center">
 <img width="330" src="https://github.com/user-attachments/assets/4f03fb9b-8e69-4269-ad28-2c2729e8469d" alt =![1000913509]>             <img width="300" src=https://i.ibb.co/pbsr3s1/Venti-Icon.webp">
                   <p align="center">
