@@ -1,8 +1,4 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation)
- <p align="center">
-       <img width="500" src="https://github.com/user-attachments/assets/b7742a38-984b-43b1-a40b-20a85b0fc889" alt = ![Screenshot_8]>
-   <p align="center">
-i hate their relationship sm
 <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
