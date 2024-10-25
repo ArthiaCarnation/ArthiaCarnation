@@ -5,8 +5,20 @@
     <img width="400" src="https://github.com/user-attachments/assets/163b1101-9a50-40e2-911a-8906f7f61245" alt=![1000915094]>
 <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
-  <p align="center">
-" ᴛʜᴇ ᴘʀᴏᴍɪꜱᴇ ᴡᴇ ᴍᴀᴅᴇ. "
+  <p align="left">
+" and now good night "
+    <p align="right">
+   " Thank you My Goddess 
+      <p align="right">
+    be careful of my heart wont you?..
+        <p align="right">
+    you see.. you're taking it home with you tonight "
+          <p align="center">
+  "  please dont break it "
+<p align="left">
+   " Goodnight Barbatos
+    <p align="left">
+    Goodbye until tomorrow "
 </p>
 <p align="center">
   <img width="500" src="https://i.ibb.co/5RM78ym/Untitled137-20240917013024-1.webp">
