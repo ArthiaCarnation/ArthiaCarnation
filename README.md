@@ -1,8 +1,15 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation)
 <p align="center">
-  <img width="400" src="https://github.com/user-attachments/assets/4539b79a-377c-4ab5-9e83-9b64b5b501d0" alt=![1000915198]>
+  IM GOING TO START ANIMATING AGAIN.. i have like learned to try animating so many times to be expressionative last idk 2 years ago ( it was just moving hair and eyes but can't do it at the same time ) if i do this it would be a HUGEE improvement to me if ever im satisfied but im picking where to start
   <p align="center">
-    <img width="400" src="https://github.com/user-attachments/assets/163b1101-9a50-40e2-911a-8906f7f61245" alt=![1000915094]>
+  <img width="300" src="https://github.com/user-attachments/assets/bb89e49e-4eb3-43d0-817b-89a3ed4e867d" alt= ![1000915202]>
+    this for Seven it fits the scene where he realizes he killed someone and turned evil blah blah ( theres actually a back ground chp for it )
+<p align="center">
+  <img width src="https://github.com/user-attachments/assets/56ff05de-966d-4044-abe9-28a4cb23fd63" alt= ![1000915204]>
+    <p align="center">
+    this for venthia angst i just love dangerously yours it fits them 
+<p align="center">
+  <img width="400" src="https://github.com/user-attachments/assets/4539b79a-377c-4ab5-9e83-9b64b5b501d0" alt=![1000915198]>
 <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="left">
