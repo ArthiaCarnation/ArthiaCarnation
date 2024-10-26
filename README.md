@@ -53,6 +53,8 @@
         <p align="center">
           PromiseWind / WindLotus (Hervie) / AppleBlossom (Alex)
           <p align="center">
+  <img width="400" src="https://github.com/user-attachments/assets/4539b79a-377c-4ab5-9e83-9b64b5b501d0" alt=![1000915198]>
+          <p align="center">
             <img width="250" src="https://github.com/user-attachments/assets/7912e46b-3214-4be5-8b2a-bb7b54045169" alt =![ezgif-7-f864e75b8b]>
             <p align="center">
               <img width="250" src ="https://github.com/user-attachments/assets/e976acd4-830a-45e6-9a49-69562a2423e6" alt=![1000913699]>
