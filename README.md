@@ -1,31 +1,22 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation)
 <p align="center">
-  IM GOING TO START ANIMATING AGAIN.. i have like learned to try animating so many times to be expressionative last idk 2 years ago ( it was just moving hair and eyes but can't do it at the same time ) if i do this it would be a HUGEE improvement to me if ever im satisfied but im picking where to start
-  <p align="center">
-  <img width="300" src="https://github.com/user-attachments/assets/bb89e49e-4eb3-43d0-817b-89a3ed4e867d" alt= ![1000915202]>
-    this for Seven it fits the scene where he realizes he killed someone and turned evil blah blah ( theres actually a back ground chp for it )
-<p align="center">
-  <img width src="https://github.com/user-attachments/assets/56ff05de-966d-4044-abe9-28a4cb23fd63" alt= ![1000915204]>
-    <p align="center">
-    this for venthia angst i just love dangerously yours it fits them 
-<p align="center">
-  <img width="400" src="https://github.com/user-attachments/assets/4539b79a-377c-4ab5-9e83-9b64b5b501d0" alt=![1000915198]>
-<p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
+  <p align="center">
+    𝐃𝐚𝐧𝐠𝐞𝐫𝐨𝐮𝐬𝐥𝐲 𝐘𝐨𝐮𝐫𝐬
   <p align="left">
-" and now good night "
+" 𝘢𝘯𝘥 𝘯𝘰𝘸 𝘎𝘰𝘰𝘥𝘯𝘪𝘨𝘩𝘵 "
     <p align="right">
-   " Thank you My Goddess 
+   " 𝘛𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘔𝘺 𝘎𝘰𝘥𝘥𝘦𝘴𝘴
       <p align="right">
-    be careful of my heart wont you?..
+    𝘣𝘦 𝘤𝘢𝘳𝘦𝘧𝘶𝘭 𝘰𝘧 𝙢𝙮 𝙝𝙚𝙖𝙧𝙩 𝘸𝘰𝘯𝘵 𝘺𝘰𝘶?..
         <p align="right">
-    you see.. you're taking it home with you tonight "
+    𝘺𝘰𝘶 𝘴𝘦𝘦.. 𝘺𝘰𝘶'𝘳𝘦 𝘵𝘢𝘬𝘪𝘯𝘨 𝘪𝘵 𝘩𝘰𝘮𝘦 𝘸𝘪𝘵𝘩 𝘺𝘰𝘶 𝘵𝘰𝘯𝘪𝘨𝘩𝘵 "
           <p align="center">
-  "  please dont break it "
+𝐩𝐥𝐞𝐚𝐬𝐞 𝐝𝐨𝐧𝐭 𝐛𝐫𝐞𝐚𝐤 𝐢𝐭
 <p align="left">
-   " Goodnight Barbatos
+   " 𝘎𝘰𝘰𝘥𝘯𝘪𝘨𝘩𝘵 𝘽𝙖𝙧𝙗𝙖𝙩𝙤𝙨
     <p align="left">
-    Goodbye until tomorrow "
+    𝘎𝘰𝘰𝘥𝘣𝘺𝘦 𝘶𝘯𝘵𝘪𝘭 𝘵𝘰𝘮𝘰𝘳𝘳𝘰𝘸 "
 </p>
 <p align="center">
   <img width="500" src="https://i.ibb.co/5RM78ym/Untitled137-20240917013024-1.webp">
