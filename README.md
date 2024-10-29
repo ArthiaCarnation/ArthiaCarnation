@@ -3,6 +3,9 @@
   <img width="200" src="https://github.com/user-attachments/assets/00461958-11f2-4890-af32-41088c0b90f5" alt = ![1000915533]>
   <p align="center">
     AAA THANK YOU SO MUCH FOR MAKING THEM AGAIN EHRLIA AND A COVER ART JUST FOR ME EEYYYYY 
+    <p align="center">
+      <p align="center">
+  <img width="400" src ="https://github.com/user-attachments/assets/f1ad1bf8-db05-4813-8f38-89cd67a42006" alt=![1000915596]>
 <p align="center">
   you guys wont believe me when i say Arven is inspired by Wednesday Addams 
 <p align="center">
