@@ -7,7 +7,8 @@
       <p align="center">
   <img width="400" src ="https://github.com/user-attachments/assets/f1ad1bf8-db05-4813-8f38-89cd67a42006" alt=![1000915596]>
 <p align="center">
-  you guys wont believe me when i say Arven is inspired by Wednesday Addams 
+  you guys wont believe me when i say Arven (that guy) is inspired by Wednesday Addams 
+  with fushi to your eternity , Cassadee afk journey , Luka Alien Stage ill probly post the finish work on the chocoSeven im going to put my other oc there:3
 <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
