@@ -1,6 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation)
 <p align="center">
-  <img width="200" src="https://github.com/user-attachments/assets/690b883d-48fb-4ecc-adb9-095cbbaed121" alt=![Screenshot-67]>
+  <img width="300" src="https://github.com/user-attachments/assets/690b883d-48fb-4ecc-adb9-095cbbaed121" alt=![Screenshot-67]>
 <p align="center">
 MY SIMS4 IS BROKEN WWAAAAAA
 <p align="center">
