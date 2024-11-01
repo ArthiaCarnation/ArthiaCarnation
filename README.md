@@ -67,7 +67,7 @@ MY SIMS4 IS BROKEN WWAAAAAA
         <p align="center">
           WindLotus (Hervie) / AppleBlossom (Alex)
           <p align="center">
-  <img width="400" src="https://github.com/user-attachments/assets/19084960-c502-406b-9d90-a46fe9e63b86" alt=![1000915564]>
+  <img width="350" src="https://github.com/user-attachments/assets/19084960-c502-406b-9d90-a46fe9e63b86" alt=![1000915564]>
           <p align="center">
             <img width="250" src="https://github.com/user-attachments/assets/7912e46b-3214-4be5-8b2a-bb7b54045169" alt =![ezgif-7-f864e75b8b]>
             <p align="center">
@@ -84,6 +84,16 @@ MY SIMS4 IS BROKEN WWAAAAAA
    <p align="center">
      PLAYLIST (soon) 
   JAMES ARTHUR, ONE DIRECTION , BRUNO MARS , FRANK SINATARA , REX ORANGE COUNTRY , ROD DANIEL , LAUV , ZACK TABUDLO
+        <p align="center">
+          Kin relationship 
+            <p align="center">
+          Astrid x Hiccup
+               <p align="center">
+          Greg x Rose Quartz
+                  <p align="center">
+          Jasmine x Aladdin
+                     <p align="center">
+          jessica rabbit x roger rabbit (everyone says so)
              <p align="center">
 𝗧𝗛𝗔𝗡𝗞 𝗬𝗢𝗨 𝗧𝗢 : 𝗫𝗲𝗻𝗲𝗹𝗲𝘀𝘀 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗳𝗿𝗮𝗺𝗲 𝗲𝗱𝗶𝘁 , 𝗬𝘂𝗶𝗸𝗮𝗮𝗮𝗿𝘁 𝗼𝗻 𝗶𝗻𝘀𝘁𝗮 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗮𝗿𝘁 , 𝗘𝗵𝗿𝗹𝗶𝗮 𝗱𝗶𝘀𝗰 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗼𝘁𝗵𝗲𝗿 𝗮𝗿𝘁 , THANK YOU SO MUCH FOR THE PIXEL KAO!! , AND IZUMII SAN FOR VENTHIA ART!! DO NOT TRACE MY DRAWINGS WHATTTTTTTT GET YOUR OWN BUD
 
