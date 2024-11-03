@@ -1,5 +1,9 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation)
 <p align="center">
+  <img width="700" src="https://github.com/user-attachments/assets/700c3844-a7b9-46a3-8fab-0531353b466d alt= ![1000916364]>
+    <p align="center">
+ Arven is inspired by Wednesday Addams ,fushi to your eternity , Cassadee afk journey , Luka Alien Stage IM KINDA PROUND ON HIS DESIGN WHATT
+<p align="center">
   <img width="700" src="https://github.com/user-attachments/assets/da569d71-4f1b-428b-8a1f-ab95afa8ec99" alt=![Screenshot_2]>
 <p align="center">
 i cant stop playing 
@@ -7,12 +11,6 @@ i cant stop playing
   <img width="200" src="https://github.com/user-attachments/assets/00461958-11f2-4890-af32-41088c0b90f5" alt = ![1000915533]>
   <p align="center">
     AAA THANK YOU SO MUCH FOR MAKING THEM AGAIN EHRLIA AND A COVER ART JUST FOR ME EEYYYYY 
-    <p align="center">
-      <p align="center">
-  <img width="400" src ="https://github.com/user-attachments/assets/f1ad1bf8-db05-4813-8f38-89cd67a42006" alt=![1000915596]>
-<p align="center">
-  you guys wont believe me when i say Arven (that guy) is inspired by Wednesday Addams 
-  with fushi to your eternity , Cassadee afk journey , Luka Alien Stage ill probly post the finish work on the chocoSeven im going to put my other oc there:3
 <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
