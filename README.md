@@ -1,8 +1,8 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation)
 <p align="center">
-  <img width="700" src="https://github.com/user-attachments/assets/700c3844-a7b9-46a3-8fab-0531353b466d alt= ![1000916364]>
+  <img width="700" src="https://github.com/user-attachments/assets/700c3844-a7b9-46a3-8fab-0531353b466d" alt= ![1000916364]>
     <p align="center">
- Arven is inspired by Wednesday Addams ,fushi to your eternity , Cassadee afk journey , Luka Alien Stage IM KINDA PROUND ON HIS DESIGN WHATT
+ Arven is inspired by Wednesday Addams ,fushi to your eternity , Cassadee afk journey , Luka Alien Stage IM KINDA PROUND ON HIS DESIGN WHATT DO NOT STEAL MY OC HIS NOW FOR SALE 
 <p align="center">
   <img width="700" src="https://github.com/user-attachments/assets/da569d71-4f1b-428b-8a1f-ab95afa8ec99" alt=![Screenshot_2]>
 <p align="center">
