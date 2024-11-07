@@ -1,17 +1,5 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation)
 <p align="center">
-  <img width="500" src="https://github.com/user-attachments/assets/1686140f-e73c-4ff0-94fc-63438cc2d501" alt= ![1000916402]>
-    <p align="center">
- Arven is inspired by Wednesday Addams ,fushi to your eternity , Cassadee afk journey
-<p align="center">
-  <img width="700" src="https://github.com/user-attachments/assets/da569d71-4f1b-428b-8a1f-ab95afa8ec99" alt=![Screenshot_2]>
-<p align="center">
-i cant stop playing 
-<p align="center">
-  <img width="200" src="https://github.com/user-attachments/assets/00461958-11f2-4890-af32-41088c0b90f5" alt = ![1000915533]>
-  <p align="center">
-    AAA THANK YOU SO MUCH FOR MAKING THEM AGAIN EHRLIA AND A COVER ART JUST FOR ME EEYYYYY 
-<p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
     𝐃𝐚𝐧𝐠𝐞𝐫𝐨𝐮𝐬𝐥𝐲 𝐘𝐨𝐮𝐫𝐬
