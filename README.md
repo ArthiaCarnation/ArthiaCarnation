@@ -2,7 +2,7 @@
   <p align="center">
       <img width="400" src="https://github.com/user-attachments/assets/65d1203b-36f2-48b7-b556-b4d0a1dbb673" alt = ![Screenshot_2]>
      <p align="center">
-       EYYYYY BADDIES pose for me, I LOVE THIS SURPISE SKIN THANK YOU SO MUCH TO MY FRIENDS KIE AND VII ILYYYYY /PPP  TOP 5 star models frfr:))))))))))
+      I LOVE THIS SURPISE SKIN THANK YOU SO MUCH TO MY FRIENDS KIERA AND VII ILYYYYY /PPP  
 <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
