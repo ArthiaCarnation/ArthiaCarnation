@@ -1,6 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation)
   <p align="center">
-      <img width="400" src="https://github.com/user-attachments/assets/72b668ad-9258-4b9a-8f35-6cf6dabda640" alt =>![1000917034]>
+      <img width="400" src="https://github.com/user-attachments/assets/db2056ea-17ef-45dc-9a71-c5a938455e78" alt = ![1000917035]>
     <img width="400" src="https://github.com/user-attachments/assets/c0a77b27-0b8e-47eb-9c29-6e210bd785c3" alt=![1000917032]>
      <p align="center">
       redesign arthia!! DONT TAKE INSPO or leak im gonna crawl my skin rn still a wip but yeah ill upload in tiktok soon  and change the emote its only the outfit will add more details ill do the back view also with many parts...god i have so much things to do her drink her name card her sons her parts her 3rd crown :((((((((
