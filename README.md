@@ -3,7 +3,7 @@
       <img width="400" src="https://github.com/user-attachments/assets/db2056ea-17ef-45dc-9a71-c5a938455e78" alt = ![1000917035]>
     <img width="400" src="https://github.com/user-attachments/assets/c0a77b27-0b8e-47eb-9c29-6e210bd785c3" alt=![1000917032]>
      <p align="center">
-      redesign arthia!! DONT TAKE INSPO or leak im gonna crawl my skin rn still a wip but yeah ill upload in tiktok soon  and change the emote its only the outfit will add more details ill do the back view also with many parts...god i have so much things to do her drink her name card her sons her parts her 3d crown :((((((((
+      im ging to crwal my skin i hate her 
 <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
