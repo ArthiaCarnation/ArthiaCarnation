@@ -3,7 +3,7 @@
       <img width="400" src="https://github.com/user-attachments/assets/9288e02c-2367-4d48-a441-64fa9495a51f" alt =![1000917027]>
     <img width="400" src="https://github.com/user-attachments/assets/13bbb89f-4c0c-4145-8741-1e454b9dfd2d" alt= ![1000917029]>
      <p align="center">
-      redesign arthia!! DONT TAKE INSPO or leak im gonna crawl my skin rn still a wip but yeah ill upload in tiktok soon ig and change the emojis its only the outfit will add more details and rendering HER HAIRRR LOOKS WAY TOO LONG
+      redesign arthia!! DONT TAKE INSPO or leak im gonna crawl my skin rn still a wip but yeah ill upload in tiktok soon ig and change the emojis its only the outfit will add more details and rendering HER HAIRRR LOOKS WAY TOO LONG the back detail will be many cause its covering with the veil and clothes 
 <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
