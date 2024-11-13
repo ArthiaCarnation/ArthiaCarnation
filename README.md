@@ -6,7 +6,7 @@
   <p align="center">
     <img width="400" src = "https://github.com/user-attachments/assets/7dc6a222-35ba-479e-8763-97d7f8ce3404" alt= ![1000917211]>
 <p align="center">
-AAAAA KYUUUU THANK YOUUU SMSSSSS
+AAAAA KYUUUU THANK YOUUU SMSSSSS SHE SO CUTE I LOVE HER
 <p align="center">
     <img width="400" src = "https://github.com/user-attachments/assets/ff9edb52-871a-4786-8014-226db7abf3db" alt=![1000917212]>
   <p align="center">
