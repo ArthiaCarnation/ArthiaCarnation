@@ -15,6 +15,7 @@ AAAAA KYUUUU THANK YOUUU SMSSSSS SHE SO CUTE I LOVE HER
     <img width="400" src = "https://github.com/user-attachments/assets/ff9edb52-871a-4786-8014-226db7abf3db" alt=![1000917212]>
   <p align="center">
     KIERA SHES SO MAJESTIC BROO THANK YOU
+     <p align="center">
       <img width="400" src="https://github.com/user-attachments/assets/db2056ea-17ef-45dc-9a71-c5a938455e78" alt = ![1000917035]>
     <img width="400" src="https://github.com/user-attachments/assets/c0a77b27-0b8e-47eb-9c29-6e210bd785c3" alt=![1000917032]>
      <p align="center">
