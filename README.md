@@ -6,7 +6,7 @@
     <p align="center">
     <img width="260" src ="https://github.com/user-attachments/assets/a2bbee56-1a24-43dd-85b1-d523a2c74efd" alt = ![1000917224]>
 <p align="center">
-i had the PERMISSION to post this for a little while!!! , on a date with venti on my bday!
+i had the PERMISSION to post this for a little while!!! We kinda had a Wedding theme for this 
   <p align="center">
     <img width="400" src = "https://github.com/user-attachments/assets/7dc6a222-35ba-479e-8763-97d7f8ce3404" alt= ![1000917211]>
 <p align="center">
