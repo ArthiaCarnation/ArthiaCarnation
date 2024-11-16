@@ -6,10 +6,12 @@
       <p align="center">
         <p align="center">
   <video src="https://github.com/user-attachments/assets/892aa7c3-caf5-4192-b059-4dd1aba9dd48" width=100 height=100/> 
+    <p align="center">
+      I VANT INJUST NOTICED THE ARMS SO CUTE
       <p align="center">
     <img width="400" src ="https://github.com/user-attachments/assets/bcc6b1de-e696-494e-a8c0-f2745e6a1324" alt= ![1000917308]>
         <p align="center">
-          THANK YOU SM AOKI genuine made my day 😂🩷🩷 even for tight schedule tsym 
+          THANK YOU SMMM AOKI genuine made my day 😂🩷🩷 even for tight schedule i love this 
   <p align="center">
     <img width="400" src = "https://github.com/user-attachments/assets/7dc6a222-35ba-479e-8763-97d7f8ce3404" alt= ![1000917211]>
 <p align="center">
