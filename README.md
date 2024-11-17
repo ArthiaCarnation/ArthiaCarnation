@@ -20,13 +20,6 @@ AAAAA KYUUUU THANK YOUUU SMSSSSS SHE SO CUTE I LOVE HER
     <img width="400" src = "https://github.com/user-attachments/assets/ff9edb52-871a-4786-8014-226db7abf3db" alt=![1000917212]>
   <p align="center">
     KIERA SHES SO MAJESTIC BROO THANK YOU
-     <p align="center">
-      <img width="400" src="https://github.com/user-attachments/assets/da713191-4f60-486d-b94f-aeccdcacefc1" alt =![1000917238]>
-    <img width="400" src="https://github.com/user-attachments/assets/c0a77b27-0b8e-47eb-9c29-6e210bd785c3" alt=![1000917032]>
-     <p align="center">
-       <img width="300" src= "https://github.com/user-attachments/assets/d56a1d90-a1f1-476b-a10b-729757c2d60a" alt=![1000917323]>
-       <p align="center">
-         ARVENNN
 <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
