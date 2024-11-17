@@ -24,7 +24,9 @@ AAAAA KYUUUU THANK YOUUU SMSSSSS SHE SO CUTE I LOVE HER
       <img width="400" src="https://github.com/user-attachments/assets/db2056ea-17ef-45dc-9a71-c5a938455e78" alt = ![1000917035]>
     <img width="400" src="https://github.com/user-attachments/assets/c0a77b27-0b8e-47eb-9c29-6e210bd785c3" alt=![1000917032]>
      <p align="center">
-      im ging to crwal my skin i hate her 
+       <img width="400" src= "https://github.com/user-attachments/assets/d286a127-b5bb-4f49-9f12-63bfde62ecca" alt= ![1000917322]>
+       <p align="center">
+         ARVENNN
 <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
