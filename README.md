@@ -11,7 +11,7 @@
       <p align="center">
     <img width="400" src ="https://github.com/user-attachments/assets/bcc6b1de-e696-494e-a8c0-f2745e6a1324" alt= ![1000917308]>
         <p align="center">
-          THANK YOU SMMM AOKI genuine made my day 😂🩷🩷 even for tight schedule i love this 
+          THANK YOU SMMM AOKI genuine made my day 😂🩷🩷 I LOVE THIS SO SILLY :))
             <p align="center">
               <img width="400" src = "https://github.com/user-attachments/assets/71751b2f-6896-471f-9e51-080121cee7ec" alt = ![1000917411]>
           <p align="center">
