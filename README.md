@@ -11,7 +11,7 @@
       <p align="center">
     <img width="400" src ="https://github.com/user-attachments/assets/bcc6b1de-e696-494e-a8c0-f2745e6a1324" alt= ![1000917308]>
         <p align="center">
-          THANK YOU SMMM AOKI genuine made my day 😂🩷🩷 I LOVE THIS SO SILLY :))
+          THANK YOU SMMM AOKI genuine made my day 😂🩷🩷 I LOVE THIS SILLY :))
             <p align="center">
               <img width="400" src = "https://github.com/user-attachments/assets/71751b2f-6896-471f-9e51-080121cee7ec" alt = ![1000917411]>
           <p align="center">
@@ -19,7 +19,7 @@
   <p align="center">
     <img width="400" src = "https://github.com/user-attachments/assets/7dc6a222-35ba-479e-8763-97d7f8ce3404" alt= ![1000917211]>
 <p align="center">
-AAAAA KYUUUU THANK YOUUU SMSSSSS SHE SO CUTE I LOVE HER
+AAAAA KYUUUU THANK YOUUU SMSSSSS SHE'S CUTE I LOVE HER
   <p align="center">
     <img width="400" src ="https://github.com/user-attachments/assets/aa0e0d6d-d305-476f-a487-a53e9ddad5b3" alt= ![1000917379]>
     <p align="center">
