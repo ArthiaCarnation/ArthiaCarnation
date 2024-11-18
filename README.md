@@ -13,7 +13,7 @@
         <p align="center">
           THANK YOU SMMM AOKI genuine made my day 😂🩷🩷 even for tight schedule i love this 
             <p align="center">
-              <img width="400" src "https://github.com/user-attachments/assets/beff5bb8-b578-4b9b-97fa-0e3f719e8eb4" alt =![1000917328]>
+              <img width="400" src = "https://github.com/user-attachments/assets/beff5bb8-b578-4b9b-97fa-0e3f719e8eb4" alt =![1000917328]>
           <p align="center">
             CHRISTMAS THEME ARTHIA TYYY KEROO SO CUTE 🍓🍓
   <p align="center">
