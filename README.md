@@ -1,34 +1,5 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation)
 <p align="center">
-  <video src="https://github.com/user-attachments/assets/ced10441-1b15-425b-b5a4-746a8f96b782" width=100 height=100/> 
-    <p align="center">
-      ITS SO LAGGYY
-      <p align="center">
-        <p align="center">
-  <video src="https://github.com/user-attachments/assets/892aa7c3-caf5-4192-b059-4dd1aba9dd48" width=100 height=100/> 
-    <p align="center">
-      I VANT INJUST NOTICED THE ARMS SO CUTE
-      <p align="center">
-    <img width="400" src ="https://github.com/user-attachments/assets/bcc6b1de-e696-494e-a8c0-f2745e6a1324" alt= ![1000917308]>
-        <p align="center">
-          THANK YOU SMMM AOKI genuine made my day 😂🩷🩷 I LOVE THIS SILLY :))
-            <p align="center">
-              <img width="400" src = "https://github.com/user-attachments/assets/71751b2f-6896-471f-9e51-080121cee7ec" alt = ![1000917411]>
-          <p align="center">
-            CHRISTMAS THEME ARTHIA TYYY KEROO SO CUTE 🍓🍓
-  <p align="center">
-    <img width="400" src = "https://github.com/user-attachments/assets/7dc6a222-35ba-479e-8763-97d7f8ce3404" alt= ![1000917211]>
-<p align="center">
-AAAAA KYUUUU THANK YOUUU SMSSSSS SHE'S CUTE I LOVE HER
-  <p align="center">
-    <img width="400" src ="https://github.com/user-attachments/assets/aa0e0d6d-d305-476f-a487-a53e9ddad5b3" alt= ![1000917379]>
-    <p align="center">
-      CURLED UP ARTHIA 😭😭😭🩷🩷🩷 TYSM KYUUUU
-<p align="center">
-    <img width="400" src = "https://github.com/user-attachments/assets/ff9edb52-871a-4786-8014-226db7abf3db" alt=![1000917212]>
-  <p align="center">
-    KIERA SHES SO MAJESTIC BROO THANK YOU
-<p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
     𝐃𝐚𝐧𝐠𝐞𝐫𝐨𝐮𝐬𝐥𝐲 𝐘𝐨𝐮𝐫𝐬
@@ -58,7 +29,7 @@ AAAAA KYUUUU THANK YOUUU SMSSSSS SHE'S CUTE I LOVE HER
     <p align="center">
                    ⌞ 𝐒𝐡𝐞 / 𝐡𝐞𝐫 ⌟
                    <p align="Center">
-𝘗𝘳𝘦𝘭𝘪𝘮𝘪𝘯𝘢𝘳𝘺 ┊ 𝘌𝘵𝘩𝘦𝘳𝘦𝘢𝘭 𝘉𝘦𝘢𝘶𝘵𝘺 ┊ 𝘎𝘰𝘥𝘥𝘦𝘴𝘴 𝘰𝘧 𝘗𝘳𝘰𝘮𝘪𝘴𝘦𝘴 - 𝘋𝘦𝘷𝘰𝘵𝘪𝘰𝘯 , 𝘍𝘢𝘪𝘵𝘩 , 𝘏𝘰𝘱𝘦 ┊ 𝘘𝘶𝘦𝘦𝘯 𝘰𝘧 𝘌𝘵𝘩𝘺𝘭𝘦𝘯𝘢 𝘝𝘢𝘭𝘦𝘳 ┊ 𝘋𝘦𝘴𝘤𝘦𝘯𝘥𝘦𝘳 𝘎𝘰𝘥𝘥𝘦𝘴𝘴 ┊ 𝘔𝘰𝘵𝘩𝘦𝘳'𝘴 𝘓𝘰𝘷𝘦 
+𝘗𝘳𝘦𝘭𝘪𝘮𝘪𝘯𝘢𝘳𝘺 ┊ 𝘌𝘵𝘩𝘦𝘳𝘦𝘢𝘭 𝘉𝘦𝘢𝘶𝘵𝘺 ┊ 𝘎𝘰𝘥𝘥𝘦𝘴𝘴 𝘰𝘧 𝘗𝘳𝘰𝘮𝘪𝘴𝘦𝘴 - 𝘋𝘦𝘷𝘰𝘵𝘪𝘰𝘯 , 𝘍𝘢𝘪𝘵𝘩 , 𝘏𝘰𝘱𝘦 ┊ 𝘘𝘶𝘦𝘦𝘯 𝘰𝘧 𝘌𝘵𝘩𝘺𝘭𝘦𝘯𝘢 𝘝𝘢𝘭𝘦𝘳 ┊ 𝘋𝘦𝘴𝘤𝘦𝘯𝘥𝘦𝘳 𝘎𝘰𝘥𝘥𝘦𝘴𝘴 ┊ 𝘔𝘰𝘵𝘩𝘦𝘳'𝘴 𝘓𝘰𝘷𝘦 ┊ Embondiment of Life
                       <p align="Center">
               𝘐𝘯𝘴𝘱𝘪𝘳𝘦𝘥 
                             <p align="Center">
