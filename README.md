@@ -1,5 +1,9 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation)
 <p align="center">
+  <img width="200" src="https://github.com/user-attachments/assets/67793649-98c0-4084-8888-e4004b4f184b" alt= ![1000917834]>
+  <p align="center">
+    this only for me to redesign after 2 months 😂😭
+  <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
     𝐃𝐚𝐧𝐠𝐞𝐫𝐨𝐮𝐬𝐥𝐲 𝐘𝐨𝐮𝐫𝐬
