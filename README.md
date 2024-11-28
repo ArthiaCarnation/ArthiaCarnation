@@ -1,6 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation)
 <p align="center">
-  <img width="200" src="https://github.com/user-attachments/assets/88268d33-3857-43fc-85a2-bf7df68b9972" alt= ![Screenshot_19]>
+  <img width="400" src="https://github.com/user-attachments/assets/88268d33-3857-43fc-85a2-bf7df68b9972" alt= ![Screenshot_19]>
   <p align="center">
     ART BY Latjaevel on tikok :33 TYSSMM 
   <p align="center">
