@@ -1,4 +1,8 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation)
+<p align="center">
+  <img width="200" src="https://github.com/user-attachments/assets/e0eaa60f-21d6-4c91-8a6b-169b1aced79f"alt= ![1000918320]>
+    <p align="center">
+      aughhh leak ig
   <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
