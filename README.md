@@ -1,5 +1,9 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation)
 <p align="center">
+  <img width="400" src ="https://github.com/user-attachments/assets/1da7dd6a-b278-4689-8452-457213981a13" alt = ![1000919545]>
+  <p align="center">
+    SUPPORTIVE MOOTIE!!!
+<p align="center">
   <img width="400" src="https://github.com/user-attachments/assets/d9ac1881-959e-4135-9047-6afddd8ce7ba" alt =![1000919346]>
   <p align="center">
     WHAT THE FLIP IS UP WITH HERRR
