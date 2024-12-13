@@ -1,5 +1,9 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation)
 <p align="center">
+  <img width="400" src="https://github.com/user-attachments/assets/0d55acbb-cc5b-46c9-acc1-ad59f86fb6d8" alt = ![1000919801]>
+  <p align="center">
+    THANK YLU SO MUH MAII I LOVE YOUR ART STYLE AND THAT OCCC AAAA COLLAB NOW
+<p align="center">
   <img width="400" src="https://github.com/user-attachments/assets/d9ac1881-959e-4135-9047-6afddd8ce7ba" alt =![1000919346]>
   <p align="center">
     WHAT THE FLIP IS UP WITH HERRR
