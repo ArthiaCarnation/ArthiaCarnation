@@ -1,5 +1,9 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation)
 <p align="center">
+  <img width="400" src="https://github.com/user-attachments/assets/9037e7e1-fd71-4996-b71e-28e9fa701d1c" alt = ![1000919882]>
+  <p align="center">
+    IM TOO LAZY TO RENDER OKAY THIS IS JUST TAKING A BREAK FROM DRAWING
+<p align="center">
   <img width="700" src="https://github.com/user-attachments/assets/0d55acbb-cc5b-46c9-acc1-ad59f86fb6d8" alt = ![1000919801]>
   <p align="center">
     THANK YLU SO MUH MAII I LOVE YOUR ART STYLE AND THAT OCCC AAAA COLLAB NOW
