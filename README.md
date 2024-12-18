@@ -1,22 +1,4 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation)
-<p align="center">
-  <img width="400" src="https://github.com/user-attachments/assets/9037e7e1-fd71-4996-b71e-28e9fa701d1c" alt = ![1000919882]>
-  <p align="center">
-    IM TOO LAZY TO RENDER OKAY THIS IS JUST TAKING A BREAK FROM DRAWING
-<p align="center">
-  <img width="700" src="https://github.com/user-attachments/assets/0d55acbb-cc5b-46c9-acc1-ad59f86fb6d8" alt = ![1000919801]>
-  <p align="center">
-    THANK YLU SO MUH MAII I LOVE YOUR ART STYLE AND THAT OCCC AAAA COLLAB NOW
-<p align="center">
-  <img width="400" src="https://github.com/user-attachments/assets/d9ac1881-959e-4135-9047-6afddd8ce7ba" alt =![1000919346]>
-  <p align="center">
-    WHAT THE FLIP IS UP WITH HERRR
-<p align="center">
-  <img width="400" src="https://github.com/user-attachments/assets/664fdfeb-0e29-49d5-9700-bdde9b1bbe1d" alt= ![1000919316]>
-<p align="center">
-  <img width="200" src="https://github.com/user-attachments/assets/e0eaa60f-21d6-4c91-8a6b-169b1aced79f"alt= ![1000918320]>
-    <p align="center">
-      aughhh leak ig
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
   <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
