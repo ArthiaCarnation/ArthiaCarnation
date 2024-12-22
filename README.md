@@ -1,6 +1,8 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
   <p align="center">
   <img width="400" src="https://github.com/user-attachments/assets/bd449993-40ff-40b0-a3c7-524cab4aa418" alt=![1000920450]>
+    <p align="center">
+      going through a divorce 💔
   <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
