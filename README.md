@@ -2,6 +2,8 @@
 <p align="center">
   <img width="400" src="https://github.com/user-attachments/assets/5495266a-6cc8-4455-9faf-5e2074804853" alt=![1000920496]>
   <p align="center">
+    Seven laughing at Arven costume 😔
+  <p align="center">
   <img width="400" src="https://github.com/user-attachments/assets/4e7c9882-bfbe-4ae9-833c-3282bc037c05" alt= ![1000920487]>
 <p align="center">
   <img width="400" src= "https://github.com/user-attachments/assets/ff3b6db3-c17a-4e95-90b2-b3f6696bc2f5" alt= ![1000920465]>
