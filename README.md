@@ -3,6 +3,7 @@
   <img width="400" src="https://github.com/user-attachments/assets/d4dfb066-d70d-4a32-999a-c6bf344fc069" alt = ![Screenshot_5]>
   <p align="center">
     I LOVE THIS TYSMM KEROO 
+    <p align="center">
   <img width="400" src="https://github.com/user-attachments/assets/c5e13dad-9d36-4589-82b8-26132af309ec" alt=![1000920497]>
   <p align="center">
     Seven laughing at everyone costume 😔 
