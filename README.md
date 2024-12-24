@@ -1,6 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
-  <img width="400" src="https://github.com/user-attachments/assets/5495266a-6cc8-4455-9faf-5e2074804853" alt=![1000920496]>
+  <img width="400" src="https://github.com/user-attachments/assets/c5e13dad-9d36-4589-82b8-26132af309ec" alt=![1000920497]>
   <p align="center">
     Seven laughing at everyone costume 😔 
   <p align="center">
