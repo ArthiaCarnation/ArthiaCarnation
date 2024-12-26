@@ -1,6 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
-  <img width="400" src="https://github.com/user-attachments/assets/53b9c153-219f-4c99-b72d-22cfc253865d" alt=![1000920519]>
+  <img width="400" src="https://github.com/user-attachments/assets/0a79b581-b3e8-4c91-b412-05312e853295" alt=![1000920526]>
   <p align="center">
     IM ABOUT TO LOSE IT GUYS i stole Floryn collector for this cause the pattern looks like lotus AND COMBINING NY OLD DESIGNS OF HER YAYY
 <p align="center">
