@@ -2,9 +2,9 @@
 <p align="center">
   please do not trace ☹️
 <p align="center">
-  <img width="400" src="https://github.com/user-attachments/assets/48b33b8d-3293-4346-9d20-46af20de95be" alt=![1000920533]>
+  <img width="400" src="https://github.com/user-attachments/assets/19d21eee-f075-4f2c-bac2-8bebc4682a49" alt=![1000920556]>
   <p align="center">
-    i stole Floryn collector for this cause the pattern looks like lotus AND COMBINING NY OLD DESIGNS OF HER YAYY, her clothes looks more like a warrior cause she is
+Shes slightly chubby🌷
 <p align="center">
   <img width="400" src="https://github.com/user-attachments/assets/d4dfb066-d70d-4a32-999a-c6bf344fc069" alt = ![Screenshot_5]>
   <p align="center">
