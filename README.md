@@ -2,7 +2,7 @@
 <p align="center">
   please do not trace ☹️
 <p align="center">
-  <img width="400" src="https://github.com/user-attachments/assets/19d21eee-f075-4f2c-bac2-8bebc4682a49" alt=![1000920556]>
+  <img width="400" src="https://github.com/user-attachments/assets/e002dea8-e566-4882-8992-12fda3ee5203" alt=![1000920723]>
   <p align="center">
 Shes slightly chubby🌷 the only rendered part is the legs im so done with this drawing my limits are growing thin
 <p align="center">
