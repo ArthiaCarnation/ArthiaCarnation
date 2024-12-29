@@ -64,6 +64,10 @@ Shes slightly chubby🌷 the only rendered part is the legs im so done with this
                       <p align="center">
                          <img width="200" src="https://github.com/user-attachments/assets/a3bebbc5-6a87-4834-b764-8f0d3c4715ad" alt = ![pony-town-Pink lemonade Arthia 🍋 DNC_OG-boop-sit-blinking-padded-4x]>
                           <img width="200" src="https://github.com/user-attachments/assets/92a7f61f-0895-486a-800a-d03baf657cc8" alt = ![pony-town-♫ 🌷Forever devout Arthia-boop-lie-blinking-padded-4x]>
+ <p align="center"> 
+<video src=https://github.com/user-attachments/assets/86e4b74b-56f6-4431-bb2d-6902a91f6729 width=100 height=100/>
+
+
 
 
 
