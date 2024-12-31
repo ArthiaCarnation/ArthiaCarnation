@@ -6,16 +6,6 @@
   <p align="center">
 Shes slightly chubby🌷 the only rendered part is the legs im so done with this drawing my limits are growing thin
 <p align="center">
-  <img width="400" src="https://github.com/user-attachments/assets/d4dfb066-d70d-4a32-999a-c6bf344fc069" alt = ![Screenshot_5]>
-  <p align="center">
-    I LOVE THIS TYSMM KEROO 
-    <p align="center">
-  <img width="400" src="https://github.com/user-attachments/assets/c5e13dad-9d36-4589-82b8-26132af309ec" alt=![1000920497]>
-  <p align="center">
-    Seven laughing at everyone costume 😔 
-  <p align="center">
-  <img width="400" src="https://github.com/user-attachments/assets/4e7c9882-bfbe-4ae9-833c-3282bc037c05" alt= ![1000920487]>
-<p align="center">
   <img width="400" src= "https://github.com/user-attachments/assets/ff3b6db3-c17a-4e95-90b2-b3f6696bc2f5" alt= ![1000920465]>
   <p align="center">
   <img width="400" src="https://github.com/user-attachments/assets/bd449993-40ff-40b0-a3c7-524cab4aa418" alt=![1000920450]>
