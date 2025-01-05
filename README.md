@@ -1,6 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
-   i dont MIND xiaoven ship its just that SOME shippers themselves has business to other Ventixoc i only got 8 videos of venthia i did not murder your whole family for this 😂 im gonna make Venti and Arthia kiss cause of this thanks 
+   i dont MIND xiaoven ship its just that SOME shippers themselves has business to other Ventixoc i only got 8 videos of venthia , i srsly have to put a warning SCROLL IF YOU DONT LIKE
 <p align="center">
   <img width="400" src="https://github.com/user-attachments/assets/19644f7d-1c16-4319-9a87-36fa6eb1bfab" alt =![1000921153]>
 <img width="400" src="https://github.com/user-attachments/assets/f9378edb-5a65-4216-a617-ba212aab5802" alt= ![1000921156]>
