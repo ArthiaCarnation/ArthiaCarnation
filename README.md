@@ -1,10 +1,8 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
-<p align="center">
-   i dont MIND xiaoven ship its just that SOME shippers themselves has business to other Ventixoc i only got 8 videos of venthia , i srsly have to put a warning SCROLL IF YOU DONT LIKE
-<p align="center">
-  <img width="400" src="https://github.com/user-attachments/assets/5d55629e-cc52-484c-88da-9415c85cfce9" alt =![1000921166]>
-<img width="400" src="https://github.com/user-attachments/assets/f9378edb-5a65-4216-a617-ba212aab5802" alt= ![1000921156]>
-<p align="center">
+   <p align="center">
+  <img width="400"  src =https://github.com/user-attachments/assets/79e517de-5295-42e8-b5b3-67f6bb095e9f alt= ![1000921229]>
+      <p align="center">
+         Art break listening to tingin - cup of joe with this!
   please do not trace ☹️
 <p align="center">
   <img width="400" src="https://github.com/user-attachments/assets/e0b248d6-c6da-4d4b-ad58-9220273aaac2" alt=![1000920822]>
