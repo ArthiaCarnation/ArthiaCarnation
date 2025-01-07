@@ -6,9 +6,9 @@
       <p align="center">
   please do not trace ☹️
 <p align="center">
-  <img width="400" src="https://github.com/user-attachments/assets/e0b248d6-c6da-4d4b-ad58-9220273aaac2" alt=![1000920822]>
+  <img width="400" src="https://github.com/user-attachments/assets/a812982f-23d4-4ea1-acb4-ae612da3c309" alt=![1000921277]!>
   <p align="center">
-Shes slightly chubby🌷 the only rendered part is the legs im so done with this drawing my limits are growing thin
+Shes slightly chubby🌷 the only rendered part is the legs im so done with this drawing
 <p align="center">
   <img width="400" src= "https://github.com/user-attachments/assets/ff3b6db3-c17a-4e95-90b2-b3f6696bc2f5" alt= ![1000920465]>
   <p align="center">
