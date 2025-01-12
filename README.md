@@ -8,7 +8,7 @@
       <p align="center">
   please do not trace ☹️
 <p align="center">
-  <img width="400" src="https://github.com/user-attachments/assets/a812982f-23d4-4ea1-acb4-ae612da3c309" alt=![1000921277]!>
+  <img width="400" src="https://github.com/user-attachments/assets/14ff50ae-dd33-4faa-8af8-8512692f8f8a" alt=![1000921570]>
   <p align="center">
 Shes slightly chubby🌷 the only rendered part is the legs im so done with this drawing
 <p align="center">
