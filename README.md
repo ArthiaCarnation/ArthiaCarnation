@@ -8,9 +8,9 @@
       <p align="center">
   please do not trace ☹️
 <p align="center">
-  <img width="400" src="https://github.com/user-attachments/assets/14ff50ae-dd33-4faa-8af8-8512692f8f8a" alt=![1000921570]>
+  <img width="400" src="https://github.com/user-attachments/assets/29fb0afa-9852-4ea0-936b-3fd03532672f" alt=![1000921618]
   <p align="center">
-Shes slightly chubby🌷 the only rendered part is the legs im so done with this drawing
+i will forever hate on Arthia design 
 <p align="center">
   <img width="400" src= "https://github.com/user-attachments/assets/ff3b6db3-c17a-4e95-90b2-b3f6696bc2f5" alt= ![1000920465]>
   <p align="center">
