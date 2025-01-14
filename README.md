@@ -28,7 +28,7 @@ Most ardently
           <p align="center">
             <img width="250" src="https://github.com/user-attachments/assets/7912e46b-3214-4be5-8b2a-bb7b54045169" alt =![ezgif-7-f864e75b8b]>
             <p align="center">
-              <img width="250" src ="https://github.com/user-attachments/assets/e976acd4-830a-45e6-9a49-69562a2423e6" alt=![1000913699]>
+              <img width="250" src ="https://github.com/user-attachments/assets/7a1e1bb7-d620-4ac9-a2f8-60643e6a76a7" alt=![1000921667]>
          <img width="253" src ="https://github.com/user-attachments/assets/db7d71bf-882f-4e65-aa45-b89715775b3f" alt =![1000913695]>
                 <p align="center">
 <img width="330" src="https://github.com/user-attachments/assets/4f03fb9b-8e69-4269-ad28-2c2729e8469d" alt =![1000913509]>             <img width="300" src=https://i.ibb.co/pbsr3s1/Venti-Icon.webp">
