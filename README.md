@@ -2,9 +2,9 @@
    <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
-        <img width="500" src="https://github.com/user-attachments/assets/b684c5b7-a315-4776-9016-c15115671b4a" alt=![1000921734]>
+        <img width="500" src="https://github.com/user-attachments/assets/a0dfbe2d-5d88-48d2-875b-a2571181b75e" alt=![1000921747]>
          <p align="center">
-            ILL HATE ARTHIA FOREVER 
+            My brother said her icon looks like a mug shot 😭😭
  <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
