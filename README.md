@@ -1,6 +1,10 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
    <p align="center">
       https://rentry.co/HevenCallout
+      <p align="center">
+        <img width="500" src="https://github.com/user-attachments/assets/9982dfde-d38c-469f-884f-e75d56ead96e" alt=![1000921725]>
+         <p align="center">
+            ILL HATE ARTHIA FOREVER 
  <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
