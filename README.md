@@ -2,6 +2,10 @@
    <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
+      <img width="500" src="https://github.com/user-attachments/assets/71abd078-c82b-4417-81d6-6b7d2324c562" alt=![1000921915]>
+         <p align="center">
+            "expected the lowest" ahh arven 🙏
+      <p align="center">
         <img width="500" src="https://github.com/user-attachments/assets/a0dfbe2d-5d88-48d2-875b-a2571181b75e" alt=![1000921747]>
          <p align="center">
             My brother said her icon looks like a mug shot 😭😭
