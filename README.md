@@ -9,6 +9,10 @@
         <img width="500" src="https://github.com/user-attachments/assets/a0dfbe2d-5d88-48d2-875b-a2571181b75e" alt=![1000921747]>
          <p align="center">
             My brother said her icon looks like a mug shot 😭😭
+            <p align="center">
+        <img width="500" src="https://github.com/user-attachments/assets/92f2940c-5641-48ae-98d4-3adee9315b6f" alt=![1000921928]>
+               <p align="center">
+               I HATE HER
  <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
