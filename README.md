@@ -4,7 +4,7 @@
       <p align="center">
       <img width="500" src="https://github.com/user-attachments/assets/903df40e-db3e-4cf4-9c99-edb4772797c3" alt=[1000921918]>
          <p align="center">
-            "expected the lowest" ahh arven 🙏
+            Arven is inspired by Wendsday adams and ppl still wont believe me 
       <p align="center">
         <img width="500" src="https://github.com/user-attachments/assets/a0dfbe2d-5d88-48d2-875b-a2571181b75e" alt=![1000921747]>
          <p align="center">
