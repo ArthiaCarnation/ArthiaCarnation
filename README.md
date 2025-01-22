@@ -2,6 +2,8 @@
    <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
+         WHATS UP WITH PEOPLE TRYING TO BE A WANNA BE ARTHIA HELPP
+           <p align="center">
       <img width="500" src="https://github.com/user-attachments/assets/903df40e-db3e-4cf4-9c99-edb4772797c3" alt=[1000921918]>
          <p align="center">
             Arven is inspired by wednesday addams and ppl still wont believe me 
