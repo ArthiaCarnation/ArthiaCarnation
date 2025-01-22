@@ -12,7 +12,7 @@
          <p align="center">
             My brother said her icon looks like a mug shot 😭😭
             <p align="center">
-        <img width="500" src="https://github.com/user-attachments/assets/92f2940c-5641-48ae-98d4-3adee9315b6f" alt=![1000921928]>
+        <img width="500" src="https://github.com/user-attachments/assets/e7e1fed6-7261-4930-8eb6-3b9fdfc99344" alt=![1000922080]>
                <p align="center">
                I HATE HER
  <p align="center">
