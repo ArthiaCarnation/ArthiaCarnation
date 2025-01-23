@@ -2,9 +2,10 @@
    <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
-         WHATS UP WITH PEOPLE TRYING TO BE A WANNA BE ARTHIA HELPP the envy sm is insane 
            <p align="center">
-      <img width="500" src="https://github.com/user-attachments/assets/903df40e-db3e-4cf4-9c99-edb4772797c3" alt=[1000921918]>
+      <img width="500" src="https://github.com/user-attachments/assets/31771d17-9905-47ea-87ee-477f4adad33c" alt=![1000922217]>
+              <p align="center">
+                 ART BY VIN , ARTHIA IN CHEONGSAM 4 CHINESE NEW YEAR GAAAHHH I LOVE IT SM VINN YOU MORE THAN 6 FANARTS OF HER, MANY OUT OF EVERYONE 😭😭🩷🩷
          <p align="center">
             Arven is inspired by wednesday addams and ppl still wont believe me 
       <p align="center">
