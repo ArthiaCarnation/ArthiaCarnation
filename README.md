@@ -6,8 +6,6 @@
       <img width="500" src="https://github.com/user-attachments/assets/31771d17-9905-47ea-87ee-477f4adad33c" alt=![1000922217]>
               <p align="center">
                  ART BY VIN , ARTHIA IN CHEONGSAM 4 CHINESE NEW YEAR GAAAHHH I LOVE IT SM VINN YOU MORE THAN 6 FANARTS OF HER, MANY OUT OF EVERYONE 😭😭🩷🩷
-         <p align="center">
-            Arven is inspired by wednesday addams and ppl still wont believe me 
       <p align="center">
         <img width="500" src="https://github.com/user-attachments/assets/a0dfbe2d-5d88-48d2-875b-a2571181b75e" alt=![1000921747]>
          <p align="center">
