@@ -6,6 +6,9 @@
    <p align="center">
       I LOVE THIS HELPL
       <p align="center">
+         <img width="500" src="https://github.com/user-attachments/assets/759fe3b1-a7aa-4618-afb3-56b620e333cb" alt =![1000922312]>
+         <p align="center">
+            FANART VENTI FOR MIMI (⁠＾⁠3⁠＾⁠♪ @_cahya196_ on TikTok (Venti'sSpouse) heh love you mootie /p !!
            <p align="center">
       <img width="500" src="https://github.com/user-attachments/assets/31771d17-9905-47ea-87ee-477f4adad33c" alt=![1000922217]>
               <p align="center">
