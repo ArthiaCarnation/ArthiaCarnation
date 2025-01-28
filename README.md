@@ -2,7 +2,7 @@
    <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
-         heven your really are a toxic person not only you criticized me badly for how i did venti you talk SHIT about me many times(unnecessary by mocking my oc , art, lore , headcanon etc) with your friends and getting them involved when i told you not to, the audacity to even do talk like that when you COPIED me, keep trying to be innocent you already had done so much damage to my trust and to others , hating on someone so much will never make you a better person , Your friends were NEVER responsible for your actions you cant handle the shits you had done alone
+         heven your really are a toxic person not only you criticized me badly for how i did venti you talk SHIT about me many times(unnecessary by mocking my oc , art, lore , headcanon etc) with your friends and getting them involved when i told you not to, the audacity to eve talk like that when you COPIED me, keep trying to be innocent you already had done so much damage to my trust and to others , hating on someone so much will never make you a better person , Your friends were NEVER responsible for your actions you cant handle the shits you had done alone
       <p align="center">
       <img width="500" src="https://github.com/user-attachments/assets/d9c61b34-31e5-435a-b72f-c73a0d571a22" alt = [1000922263]>
    <p align="center">
