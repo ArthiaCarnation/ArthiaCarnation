@@ -2,7 +2,8 @@
    <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
-         heven your really are a toxic person not only you criticized me for on how i did venti you talk SHIT about me many times with your friends and getting then involved when i told you not to, the audacity to even do talk like that when you COPIED me , keep trying to be innocent you already had done so much damage to my trust and to others
+         heven your really are a toxic person not only you criticized me for on
+how i did venti you talk SHIT about me many times with your friends and getting then involved when i told you not to, the audacity to even do talk like that when you COPIED me , keep trying to be innocent you already had done so much damage to my trust and to others
       <p align="center">
       <img width="500" src="https://github.com/user-attachments/assets/d9c61b34-31e5-435a-b72f-c73a0d571a22" alt = [1000922263]>
    <p align="center">
