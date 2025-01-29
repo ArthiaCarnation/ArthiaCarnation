@@ -8,7 +8,7 @@
    <p align="center">
       I LOVE THIS HELPL
       <p align="center">
-         <img width="500" src="https://github.com/user-attachments/assets/759fe3b1-a7aa-4618-afb3-56b620e333cb" alt =![1000922312]>
+         <img width="500" src="https://github.com/user-attachments/assets/7aac2317-3844-4abe-a1a4-2840111af159" alt =![1000922442]>
          <p align="center">
            MY ART FOR ONLY MIMI (⁠＾⁠3⁠＾⁠♪ @_cahya196_ on TikTok (Venti'sSpouse) heh love you mootie /p !!
            <p align="center">
