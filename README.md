@@ -27,13 +27,13 @@ Most ardently
 𝗩𝗲𝗻𝘁𝗵𝗶𝗮
         <p align="center">
           WindLotus / AppleBlossom 
-           <p align="center">
-              <img width="250" src="https://i.ibb.co/TtQ4693/Untitled298-20250125174348.webp"> <img width="250" src="https://i.ibb.co/c2FVZdd/Item-A-Buoyant-Breeze.png"
-                  <p align="center">
+<p align="center">
+              <img width="250" src="https://i.ibb.co/TtQ4693/Untitled298-20250125174348.webp"> <img width="250" src="https://i.ibb.co/c2FVZdd/Item-A-Buoyant-Breeze.png">
+<p align="center">
             <img width="230" src="https://github.com/user-attachments/assets/33169273-0ea5-4acc-bb04-f851821f7a69" alt=![Screenshot_15]> <img width="250" src="https://static.wikia.nocookie.net/gensin-impact/images/e/ec/Namecard_Background_Venti_Azure_Sky.png/revision/latest?cb=20210330005404">
-          <p align="center">
+<p align="center">
             <img width="250" src="https://github.com/user-attachments/assets/7912e46b-3214-4be5-8b2a-bb7b54045169" alt =![ezgif-7-f864e75b8b]>
-            <p align="center">
+<p align="center">
               <img width="250" src ="https://github.com/user-attachments/assets/7a1e1bb7-d620-4ac9-a2f8-60643e6a76a7" alt=![1000921667]>
          <img width="253" src ="https://github.com/user-attachments/assets/db7d71bf-882f-4e65-aa45-b89715775b3f" alt =![1000913695]>
                 <p align="center">
