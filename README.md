@@ -5,6 +5,10 @@
       <img width="500" src="https://github.com/user-attachments/assets/645dd733-358b-48bc-823c-1bb9e249a96e" alt= ![1000922434]>
          <p align="center">
             FANART 4 KEIRA AAAAAAAAA LIVANAAAAAA AHKRIEJSIRHJEHD 
+            <p align="center">
+            <img width="500" src="https://github.com/user-attachments/assets/a81ce535-93d6-4665-9b8b-ec419a6fd062" alt= ![1000922589]>
+               <p align="center">
+                  ART BY KEIRA THNAK YOU SO MUCHH 
         <p align="center">
       <img width="500" src="https://github.com/user-attachments/assets/d9c61b34-31e5-435a-b72f-c73a0d571a22" alt = [1000922263]>
    <p align="center">
