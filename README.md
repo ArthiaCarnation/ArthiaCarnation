@@ -4,7 +4,7 @@
       <p align="center">
          <img width="300" src="https://github.com/user-attachments/assets/28771a61-c314-4240-a949-bb09862b411d" alt= ![1000922627]>
          <p align="center">
-            Kenzo icon for miko soon his model is upcoming!!!
+            Kenzo icon for miko soon his model is upcoming!!! IM NOT DONE YET HE WILL BE FIXED
          <p align="center">
       <img width="500" src="https://github.com/user-attachments/assets/645dd733-358b-48bc-823c-1bb9e249a96e" alt= ![1000922434]>
          <p align="center">
