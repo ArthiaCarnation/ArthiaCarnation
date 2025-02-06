@@ -4,7 +4,7 @@
       <p align="center">
 <img width="500" src="https://github.com/user-attachments/assets/1af7a518-b797-4d73-a82b-eaa8f883ea76" alt= ![1000922743]>
    <p align="center">
-         Glorizeda is so lucky to have him.
+         Arthia's Father , Glorizeda is so lucky to have him.
       <p align="center">
 <img width="500" src="https://github.com/user-attachments/assets/70207b28-5898-42dc-8e2c-b44addab2b95" alt=![1000922683]>
          <p align="center">
