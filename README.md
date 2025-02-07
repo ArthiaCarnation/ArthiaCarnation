@@ -2,9 +2,9 @@
    <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
-<img width="500" src="https://github.com/user-attachments/assets/1af7a518-b797-4d73-a82b-eaa8f883ea76" alt= ![1000922743]>
+<img width="500" src="https://github.com/user-attachments/assets/a6bc47e4-6693-466e-9685-fbc3444e857f" alt=![1000922761]>
    <p align="center">
-         Arthia's Father , Glorizeda is so lucky to have him.
+         Arthia's Father 
       <p align="center">
 <img width="500" src="https://github.com/user-attachments/assets/70207b28-5898-42dc-8e2c-b44addab2b95" alt=![1000922683]>
          <p align="center">
