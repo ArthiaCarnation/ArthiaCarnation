@@ -2,6 +2,10 @@
    <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
+        <img width="300" src="https://github.com/user-attachments/assets/47657dc7-223d-400d-94c4-000a8b5f31df" alt= ![Screenshot_9]>
+          <p align="center">
+            LOTTIE NOTICED ME
+              <p align="center">
 <img width="500" src="https://github.com/user-attachments/assets/ed9f27cf-5876-4487-8065-1629b197128f" alt=![1000922763]>
    <p align="center">
          Arthia's Father , Ardeveus fanart 🖤🖤
