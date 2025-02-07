@@ -4,7 +4,7 @@
       <p align="center">
 <img width="500" src="https://github.com/user-attachments/assets/a6bc47e4-6693-466e-9685-fbc3444e857f" alt=![1000922761]>
    <p align="center">
-         Arthia's Father 
+         Arthia's Father , Ardevues fanart 🖤🖤
       <p align="center">
 <img width="500" src="https://github.com/user-attachments/assets/70207b28-5898-42dc-8e2c-b44addab2b95" alt=![1000922683]>
          <p align="center">
