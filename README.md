@@ -6,7 +6,7 @@
       <p align="center">
          <img width="400" src="https://github.com/user-attachments/assets/795729d2-7482-4f34-acbc-37d3a752ae46" alt=![1000923101]>
          <p align="center">
-            HEHHE
+            credit to mallow style!! :33
          <p align="center">
         <img width="400" src="https://github.com/user-attachments/assets/9b1332e2-2941-4be8-967b-d9cd7fe6871a" alt=![1000922939]>
          <p align="center">
