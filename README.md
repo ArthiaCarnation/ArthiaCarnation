@@ -4,7 +4,7 @@
       <p align="center">
             <video src= https://github.com/user-attachments/assets/4e4084a5-47d0-43ea-a1ad-7d305a4ea06f width=100 height=100/>
 <p align="center">
-HELP ME TYSMMM VENTI 😭🩷🩷
+HELP ME TYSMMM VENTI FOR MAKING THIS SOLLY VIDEO 😭🩷🩷
 <p align="center">                 
       <img width="400" src="https://github.com/user-attachments/assets/eae3c86a-59e1-4dea-aa6b-81b7fb40a166" alt=![1000923390]>
             <p align="center">
