@@ -2,6 +2,10 @@
 <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
+            <video src= https://github.com/user-attachments/assets/4e4084a5-47d0-43ea-a1ad-7d305a4ea06f width=100 height=100/>
+<p align="center">
+HELP ME TYSMMM VENTI 😭🩷🩷
+<p align="center">                 
       <img width="400" src="https://github.com/user-attachments/assets/eae3c86a-59e1-4dea-aa6b-81b7fb40a166" alt=![1000923390]>
             <p align="center">
                   Changing her a little 😲
@@ -48,10 +52,6 @@
          <img width="300" src="https://github.com/user-attachments/assets/4cb8267e-22ed-4d5d-b78b-e61d0cc580a9" alt=![1000922684]>
          <p align="center">
             Kenzo icon for miko soon his model is upcoming!!! IM NOT DONE YET HE WILL BE FIXED
-         <p align="center">
-      <img width="500" src="https://github.com/user-attachments/assets/645dd733-358b-48bc-823c-1bb9e249a96e" alt= ![1000922434]>
-         <p align="center">
-            FANART 4 KEIRA AAAAAAAAA LIVANAAAAAA AHKRIEJSIRHJEHD 
             <p align="center">
             <img width="500" src="https://github.com/user-attachments/assets/a81ce535-93d6-4665-9b8b-ec419a6fd062" alt= ![1000922589]>
                <p align="center">
