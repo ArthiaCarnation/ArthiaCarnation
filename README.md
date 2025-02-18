@@ -1,10 +1,10 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
+      https://rentry.co/HevenCallout
+<p align="center">
             <video src=https://github.com/user-attachments/assets/962d0477-741c-4760-889f-4ed29d4ce238 width=100 height=100/>
 <p align="center">        
 AAAA HUHUU ITS SO CUTE BRO DID IT AT 4AM HELP MEE FANART VIDEO BY DAWYNEE
-<p align="center">
-      https://rentry.co/HevenCallout
       <p align="center">
             <video src= https://github.com/user-attachments/assets/4e4084a5-47d0-43ea-a1ad-7d305a4ea06f width=100 height=100/>
 <p align="center">
