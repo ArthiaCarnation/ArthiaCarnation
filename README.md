@@ -3,6 +3,8 @@
       https://rentry.co/HevenCallout
       <p align="center">
             ARTHIA DRIP MARKET AND SPLASH ART IS UPCOMING BY DAWYNEAAAAAAAA
+            <p align="center">
+                 <img width="400" src="https://github.com/user-attachments/assets/d269c893-dc55-43f0-a806-4a3222d58bbf" alt=![1000923577]>
 <p align="center">
             <video src=https://github.com/user-attachments/assets/962d0477-741c-4760-889f-4ed29d4ce238 width=100 height=100/>
 <p align="center">        
