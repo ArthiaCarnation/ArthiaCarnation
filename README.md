@@ -12,14 +12,13 @@ The most trusted angel in the Heart of Light(Little Light Angels) Mael competed 
           i love this details on mael sm
       <p align="center">
             <img width="400" src="https://github.com/user-attachments/assets/92422d5a-37c0-4374-a486-758a11ddc488" alt=![1000923676]>
-        <p align="center">
            <p align="center">
-            <img width="400" src=" https://github.com/user-attachments/assets/8d39f0ac-e19a-47c3-8f0b-be9542f33ba0" alt=![1000923677]>
+            <img width="400" src="https://github.com/user-attachments/assets/8d39f0ac-e19a-47c3-8f0b-be9542f33ba0" alt=![1000923677]>
             <p align="center">
                  Mael on the walmart video soon my art heh
                   <img width="400" src="https://github.com/user-attachments/assets/5dda8ebe-9dc5-4a98-b474-5d8d556967ac" alt=![1000923679]>
                   <p align="center">
-                        Gossiping gang Mael and Stella 🩷🩷 ill probably rmk this cause i dont like it
+                        Gossiping gang Mael and Stella 🩷🩷 ill probably rmk this cause i dont like it THIS WAS RUSHED
                   <p align="center">
             <video src=https://github.com/user-attachments/assets/962d0477-741c-4760-889f-4ed29d4ce238 width=100 height=100/>
 <p align="center">        
