@@ -2,7 +2,14 @@
 <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
-            busy month until school ends!
+            ART BY DAWYNE OC FROM AOKI
+           <p align="center">
+                 MAEL SUMMARY LORE : 
+The most trusted angel in the Heart of Light(Little Light Angels) Mael competed four other angels in his league: Xavier(Vether), who came in second, Azria, who came in third, Stella(Lemoni), who came in fourth, and Ember(Xeneless), who came in fifth. He was the one who led Arthia through her journey on Teyvat, chosen by her father Ardeveus as a companion for all eternity Mael stood out himself by overcoming six obstacles in two tests while the other angels struggled to be in his position. His strength, confidence and leadership made him an ideal companion for Arthia and a LEADER for other angels that needed his guidance in addition to Arthia(Arthia believes her angels are her children, and the angels believe Arthia is their mother, making Mael her nonbiological son)
+      <p align="center">
+      <img width="500" src="https://github.com/user-attachments/assets/96c4e703-a42c-4fbd-9520-9b2f665ad769" alt= ![1000923674]>
+    <p align="center">
+          i love this details on mael sm
       <p align="center">
             ARTHIA DRIP MARKET AND SPLASH ART IS UPCOMING BY DAWYNEAAAAAAAA
             <p align="center">
