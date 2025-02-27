@@ -4,7 +4,7 @@
       <p align="center">               
       <img width="400" src="https://github.com/user-attachments/assets/90389529-f0e3-44fd-aec8-59bad79adb25" alt=![1000923742]>
             <p align="center">
-                  i hate her sm bro
+                  i hate Arthia sm bro its not even funny anymore she ruins my mood and stress me out when im not satisfied get her out of my face bro😭🙏
       <p align="center">
             ART BY DAWYNE OC FROM AOKI
            <p align="center">
