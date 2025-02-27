@@ -1,6 +1,10 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
+      <p align="center">               
+      <img width="400" src="https://github.com/user-attachments/assets/90389529-f0e3-44fd-aec8-59bad79adb25" alt=![1000923742]>
+            <p align="center">
+                  hahhaha
       <p align="center">
             ART BY DAWYNE OC FROM AOKI
            <p align="center">
@@ -27,10 +31,6 @@ AAAA HUHUU ITS SO CUTE BRO DID IT AT 4AM HELP MEE FANART VIDEO BY DAWYNEE
             <video src= https://github.com/user-attachments/assets/4e4084a5-47d0-43ea-a1ad-7d305a4ea06f width=100 height=100/>
 <p align="center">
 HELP ME TYSMMM VENTI FOR MAKING THIS SOLLY VIDEO 😭🩷🩷
-<p align="center">                 
-      <img width="400" src="https://github.com/user-attachments/assets/eae3c86a-59e1-4dea-aa6b-81b7fb40a166" alt=![1000923390]>
-            <p align="center">
-                  Changing her a little 😲
       <p align="center">
       <img width="400" src="https://github.com/user-attachments/assets/b124d955-077b-40a0-91fe-19644b78679c" alt= ![1000923255]>
             <p align="center">
