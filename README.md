@@ -1,87 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
-      <p align="center">               
-      <img width="400" src="https://github.com/user-attachments/assets/90389529-f0e3-44fd-aec8-59bad79adb25" alt=![1000923742]>
-            <p align="center">
-                  i hate Arthia sm bro its not even funny anymore she ruins my mood and stress me out when im not satisfied get her out of my face😭🙏
-      <p align="center">
-            ART BY DAWYNE OC FROM AOKI
-           <p align="center">
-                 MAEL SUMMARY LORE : 
-The most trusted angel in the Heart of Light(Little Light Angels) Mael competed four other angels in his league: Xavier(Vether), who came in second, Azria, who came in third, Stella(Lemoni), who came in fourth, and Ember(Xeneless), who came in fifth. He was the one who led Arthia through her journey on Teyvat, chosen by her father Ardeveus as a companion for all eternity Mael stood out himself by overcoming six obstacles in two tests while the other angels struggled to be in his position. His strength, confidence and leadership made him an ideal companion for Arthia and a LEADER for other angels that needed his guidance in addition to Arthia(Arthia believes her angels are her children, and the angels believe Arthia is their mother, making Mael her nonbiological son)
-      <p align="center">
-      <img width="500" src="https://github.com/user-attachments/assets/96c4e703-a42c-4fbd-9520-9b2f665ad769" alt= ![1000923674]>
-    <p align="center">
-          i love this details on mael sm
-      <p align="center">
-            <img width="400" src="https://github.com/user-attachments/assets/92422d5a-37c0-4374-a486-758a11ddc488" alt=![1000923676]>
-           <p align="center">
-            <img width="400" src="https://github.com/user-attachments/assets/8d39f0ac-e19a-47c3-8f0b-be9542f33ba0" alt=![1000923677]>
-            <p align="center">
-                 Mael on the walmart video soon my art heh
-                  <img width="400" src="https://github.com/user-attachments/assets/5dda8ebe-9dc5-4a98-b474-5d8d556967ac" alt=![1000923679]>
-                  <p align="center">
-                        Gossiping gang Mael and Stella 🩷🩷 ill probably rmk this cause i dont like it THIS WAS RUSHED
-                  <p align="center">
-            <video src=https://github.com/user-attachments/assets/962d0477-741c-4760-889f-4ed29d4ce238 width=100 height=100/>
-<p align="center">        
-AAAA HUHUU ITS SO CUTE BRO DID IT AT 4AM HELP MEE FANART VIDEO BY DAWYNEE
-      <p align="center">
-            <video src= https://github.com/user-attachments/assets/4e4084a5-47d0-43ea-a1ad-7d305a4ea06f width=100 height=100/>
-<p align="center">
-HELP ME TYSMMM VENTI FOR MAKING THIS SOLLY VIDEO 😭🩷🩷
-      <p align="center">
-      <img width="400" src="https://github.com/user-attachments/assets/b124d955-077b-40a0-91fe-19644b78679c" alt= ![1000923255]>
-            <p align="center">
-                  we have been playing Minecraft for 12 hours 
-<p align="center">
-   <img width="400" src="https://github.com/user-attachments/assets/31480f83-4c7c-4fff-ad86-8778f6d5cef3" alt=![1000923214]>
-   <p align="center">
-         <img width="400" src="https://github.com/user-attachments/assets/3ba79c42-5b17-48ea-a8ef-e84853971d66" alt= ![1000923253]>
-      <p align="center">
-         VINNN HUHUHU
-      <p align="center">
-         <img width="400" src="https://github.com/user-attachments/assets/f15d0377-e650-496c-8ed3-57ff6f2fe356" alt= ![1000923100]>
-      <p align="center">
-         <img width="400" src="https://github.com/user-attachments/assets/795729d2-7482-4f34-acbc-37d3a752ae46" alt=![1000923101]>
-         <p align="center">
-            credit to mallow style!! :33
-         <p align="center">
-        <img width="400" src="https://github.com/user-attachments/assets/9b1332e2-2941-4be8-967b-d9cd7fe6871a" alt=![1000922939]>
-         <p align="center">
-            DW OC
-      <p align="center">
-        <img width="400" src="https://github.com/user-attachments/assets/43e93ce9-6e2e-4e5d-849f-bb911cbb13f6" alt=![1000922904]>
-          <p align="center">
-            Peach lemonade cookie Arthia >O<
-              <p align="center">
-<img width="500" src="https://github.com/user-attachments/assets/ed9f27cf-5876-4487-8065-1629b197128f" alt=![1000922763]>
-   <p align="center">
-         Arthia's Father , Ardeveus fanart 🖤🖤
-      <p align="center">
-<img width="500" src="https://github.com/user-attachments/assets/70207b28-5898-42dc-8e2c-b44addab2b95" alt=![1000922683]>
-         <p align="center">
-            ART BY REX CHIBI ARTHIA THEY ARE MATCHING BRO 😭😭😭
-   <img width="500" src="https://github.com/user-attachments/assets/8e6fde2b-c6c4-48ed-87e0-d9d1b1133188" alt = ![1000922633]>
-         <p align="center">
-            DAUGHTER VENTHIA😲😲
-       <p align="center">
-   <img width="500" src="https://github.com/user-attachments/assets/84ded1ac-6d48-4c0d-90f4-27d67ff9a48a" alt= ![Screenshot_4]>
-             <p align="center">
-          they so cute heh
-      <p align="center">
-         <img width="300" src="https://github.com/user-attachments/assets/4cb8267e-22ed-4d5d-b78b-e61d0cc580a9" alt=![1000922684]>
-         <p align="center">
-            Kenzo icon for miko soon his model is upcoming!!! IM NOT DONE YET HE WILL BE FIXED
-            <p align="center">
-            <img width="500" src="https://github.com/user-attachments/assets/a81ce535-93d6-4665-9b8b-ec419a6fd062" alt= ![1000922589]>
-               <p align="center">
-                  ART BY KEIRA THNAK YOU SO MUCHH 
-        <p align="center">
-      <img width="500" src="https://github.com/user-attachments/assets/d9c61b34-31e5-435a-b72f-c73a0d571a22" alt = [1000922263]>
-   <p align="center">
-      I LOVE THIS HELPL
  <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
@@ -110,7 +29,7 @@ Most ardently
               <img width="250" src ="https://github.com/user-attachments/assets/7a1e1bb7-d620-4ac9-a2f8-60643e6a76a7" alt=![1000921667]>
          <img width="253" src ="https://github.com/user-attachments/assets/db7d71bf-882f-4e65-aa45-b89715775b3f" alt =![1000913695]>
                 <p align="center">
-<img width="330" src="https://i.ibb.co/0yQnJbtd/Untitled308-20250131210551.png">
+<img width="330" src="https://github.com/user-attachments/assets/4f332491-5ab9-486a-a7e3-ccf276ee29c9" alt=![1000923754]>
    <img width="300" src=https://i.ibb.co/pbsr3s1/Venti-Icon.webp">
                    <p align="center">
               <img width="250" src="https://i.ibb.co/TtQ4693/Untitled298-20250125174348.webp"> <img width="250" src="https://i.ibb.co/c2FVZdd/Item-A-Buoyant-Breeze.png">
@@ -119,10 +38,14 @@ Most ardently
       <p align="center">
     <img width="230" src="https://github.com/user-attachments/assets/90eb0010-6b90-4717-9b7a-dafd6e072a61" alt = ![pony-town-To Ashes and Blood 🌼⚔-laugh-blinking-toy365-4x]>
  <img width="230" src="https://github.com/user-attachments/assets/ed8f84ce-2a1a-4c59-922b-4ab845bb7ea3" alt = ![pony-town-Arthia's kiss marks 😋🩷-silly-wink-blush-blinking-4x]>
+            <p align="center">
+            <img width="500" src="https://github.com/user-attachments/assets/d9c61b34-31e5-435a-b72f-c73a0d571a22" alt = [1000922263]>
  <p align="center"> 
 <video src=https://github.com/user-attachments/assets/86e4b74b-56f6-4431-bb2d-6902a91f6729 width=100 height=100/>
-
-
+      <p align="center">
+<video src=https://github.com/user-attachments/assets/962d0477-741c-4760-889f-4ed29d4ce238 width=100 height=100/>
+<p align="center">
+            <video src= https://github.com/user-attachments/assets/4e4084a5-47d0-43ea-a1ad-7d305a4ea06f width=100 height=100/>
 
 
 
