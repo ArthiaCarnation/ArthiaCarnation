@@ -4,7 +4,7 @@
       <p align="center">               
       <img width="400" src="https://github.com/user-attachments/assets/90389529-f0e3-44fd-aec8-59bad79adb25" alt=![1000923742]>
             <p align="center">
-                  hahhaha
+                  i hate her sm bro
       <p align="center">
             ART BY DAWYNE OC FROM AOKI
            <p align="center">
