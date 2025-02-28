@@ -30,7 +30,7 @@ Most ardently
          <img width="253" src ="https://github.com/user-attachments/assets/db7d71bf-882f-4e65-aa45-b89715775b3f" alt =![1000913695]>
                 <p align="center">
 <img width="330" src="https://github.com/user-attachments/assets/4f332491-5ab9-486a-a7e3-ccf276ee29c9" alt=![1000923754]>
-   <img width="300" src=https://i.ibb.co/pbsr3s1/Venti-Icon.webp">
+   <img width="300" src="https://github.com/user-attachments/assets/537221e9-6a95-4bc0-8fad-60405a574f0b" alt=![1000923598]>
                    <p align="center">
               <img width="250" src="https://i.ibb.co/TtQ4693/Untitled298-20250125174348.webp"> <img width="250" src="https://i.ibb.co/c2FVZdd/Item-A-Buoyant-Breeze.png">
 <p align="center">
@@ -39,6 +39,8 @@ Most ardently
     <img width="230" src="https://github.com/user-attachments/assets/90eb0010-6b90-4717-9b7a-dafd6e072a61" alt = ![pony-town-To Ashes and Blood 🌼⚔-laugh-blinking-toy365-4x]>
  <img width="230" src="https://github.com/user-attachments/assets/ed8f84ce-2a1a-4c59-922b-4ab845bb7ea3" alt = ![pony-town-Arthia's kiss marks 😋🩷-silly-wink-blush-blinking-4x]>
             <p align="center">
+                  Venti Icon is Art by Chura 🩷 suggest to see this on light mode 
+                  <p align="center">
             <img width="500" src="https://github.com/user-attachments/assets/d9c61b34-31e5-435a-b72f-c73a0d571a22" alt = [1000922263]>
  <p align="center"> 
 <video src=https://github.com/user-attachments/assets/86e4b74b-56f6-4431-bb2d-6902a91f6729 width=100 height=100/>
