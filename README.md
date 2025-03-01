@@ -2,6 +2,10 @@
 <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
+            <img width="500" src="https://github.com/user-attachments/assets/b6023624-c725-4b30-9ab4-dee5f45a8c8d" alt=![1000923840]>
+            <p align="center">
+                  KEROS HEADCANON HELPP VENTI'S FACE LOOKS CUTE AND FUNNY😭
+      <p align="center">
             <img width="500" src="https://github.com/user-attachments/assets/6abc2085-5fd2-473d-aaf4-674197c2fff2" alt=![1000923786]>
             <p align="center">
                   messy redo
