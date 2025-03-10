@@ -22,7 +22,9 @@ Most ardently
       <p align="center">
 𝗩𝗲𝗻𝘁𝗵𝗶𝗮
         <p align="center">
-          WindLotus / AppleBlossom 
+          WindLotus / AppleBlossom
+              <p align="center">
+            <img width="300" src="https://github.com/user-attachments/assets/f15ddb8d-0677-4a86-a98e-bc7c8b96c828" alt=![1000924230]>
 <p align="center">
             <img width="250" src="https://github.com/user-attachments/assets/7912e46b-3214-4be5-8b2a-bb7b54045169" alt =![ezgif-7-f864e75b8b]>
 <p align="center">
