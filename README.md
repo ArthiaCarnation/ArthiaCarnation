@@ -7,7 +7,7 @@
                   when she's buff slight chubby looks like a man is fem masculine very tall weights over 200 a Bride and a warrior a goddess>>>>>>>> almost done!
             <p align="center">
                 <p align="center">
-  <img width="400" src="https://github.com/user-attachments/assets/34a58593-8511-4750-a0b4-fd13dabf785c alt=![1000924320]>
+  <img width="400" src="https://github.com/user-attachments/assets/34a58593-8511-4750-a0b4-fd13dabf785c" alt=![1000924320]>
         <p align="center">
                       ART COLLAB WITH VENTI!!
  <p align="center">
