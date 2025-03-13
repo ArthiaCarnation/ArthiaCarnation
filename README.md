@@ -33,7 +33,7 @@ Most ardently
         <p align="center">
           WindLotus / AppleBlossom
               <p align="center">
-            <img width="300" src="https://github.com/user-attachments/assets/f15ddb8d-0677-4a86-a98e-bc7c8b96c828" alt=![1000924230]>
+            <img width="300" src="https://github.com/user-attachments/assets/31a49874-7fce-4873-8e61-8fa1e7408672" alt=![1000923423]>
 <p align="center">
             <img width="250" src="https://github.com/user-attachments/assets/7912e46b-3214-4be5-8b2a-bb7b54045169" alt =![ezgif-7-f864e75b8b]>
 <p align="center">
@@ -50,14 +50,29 @@ Most ardently
     <img width="230" src="https://github.com/user-attachments/assets/90eb0010-6b90-4717-9b7a-dafd6e072a61" alt = ![pony-town-To Ashes and Blood 🌼⚔-laugh-blinking-toy365-4x]>
  <img width="230" src="https://github.com/user-attachments/assets/ed8f84ce-2a1a-4c59-922b-4ab845bb7ea3" alt = ![pony-town-Arthia's kiss marks 😋🩷-silly-wink-blush-blinking-4x]>
             <p align="center">
-                  Venti Icon is Art by Chura 🩷 suggest to see this on light mode 
+                  Venti Icon is Art by Chura Suggest to see this on light mode 
                   <p align="center">
+                        <img width="300" src="https://github.com/user-attachments/assets/f15ddb8d-0677-4a86-a98e-bc7c8b96c828" alt=![1000924230]>
+<p align="center">
+      <p align="center">
             <img width="500" src="https://github.com/user-attachments/assets/d9c61b34-31e5-435a-b72f-c73a0d571a22" alt = [1000922263]>
+                        <p align="center">
+       <img width="500" src="https://github.com/user-attachments/assets/2dd3439f-93c9-4b0a-bf51-b3f131af4f65" alt=![1000924342]>
+                              <p align="center">
+         <img width="500" src="https://github.com/user-attachments/assets/d325d54d-90a1-4956-86ca-cd31d33e7366" alt=![1000922634]>
+      <p align="center">
+            <img width="500" src="https://github.com/user-attachments/assets/49fe849e-4450-492a-89a2-1fa2859ae8e3' alt=![1000923604]>
+<p align="center">
+            <img width="300" src="https://github.com/user-attachments/assets/d44c0020-8c13-4c28-a0c9-fc426092b5c1" alt= ![1000915525]>
+            <p align="center">
+        <img width="300" src="https://github.com/user-attachments/assets/1c17796a-7336-419b-b10b-a8ca2baba30c" alt=![1000918153]>
+         <p align="center">
+        <img width="300" src="https://github.com/user-attachments/assets/17cfd7eb-6753-41db-b334-4402e12df2a4" alt=![1000916384]>
  <p align="center"> 
-<video src=https://github.com/user-attachments/assets/86e4b74b-56f6-4431-bb2d-6902a91f6729 width=100 height=100/>
+<video src="https://github.com/user-attachments/assets/86e4b74b-56f6-4431-bb2d-6902a91f6729"alt=![1000916384]>
       <p align="center">
 <video src=https://github.com/user-attachments/assets/962d0477-741c-4760-889f-4ed29d4ce238 width=100 height=100/>
-<p align="center">
+      <p align="center">
             <video src= https://github.com/user-attachments/assets/4e4084a5-47d0-43ea-a1ad-7d305a4ea06f width=100 height=100/>
 
 
