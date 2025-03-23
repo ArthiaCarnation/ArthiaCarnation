@@ -2,8 +2,6 @@
 <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
-<video src="https://github.com/user-attachments/assets/fe970fc5-b1be-484e-930f-b65a91f53943"alt=![1000916384]>
-      <p align="center">
       alight motion watermark pmo 💔
       <p align="center">
   <img width="500" src=https://github.com/user-attachments/assets/bde98ca3-5994-4ede-a819-99842bc976ae alt= ![1000924831]>
