@@ -2,7 +2,9 @@
 <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
-      alight motion watermark pmo 💔
+<video src="https://github.com/user-attachments/assets/15fdcb4f-6a43-4600-85a5-38fb17346222" width=100 height=100/>>
+      <p align="center">
+      4 assignment 2 notes Thursday final exam 💔
       <p align="center">
   <img width="500" src=https://github.com/user-attachments/assets/bde98ca3-5994-4ede-a819-99842bc976ae alt= ![1000924831]>
             <p align="center">
@@ -71,7 +73,7 @@
                                     <p align="center">
             <img width="500" src="https://github.com/user-attachments/assets/d9c61b34-31e5-435a-b72f-c73a0d571a22" alt = [1000922263]>
       <p align="center">
-<video src="https://github.com/user-attachments/assets/86e4b74b-56f6-4431-bb2d-6902a91f6729"alt=![1000916384]>
+<video src="https://github.com/user-attachments/assets/86e4b74b-56f6-4431-bb2d-6902a91f6729" alt=![1000916384]>
       <p align="center">
 <video src=https://github.com/user-attachments/assets/962d0477-741c-4760-889f-4ed29d4ce238 width=100 height=100/>
       <p align="center">
