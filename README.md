@@ -2,7 +2,7 @@
 <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
-<video src="https://github.com/user-attachments/assets/15fdcb4f-6a43-4600-85a5-38fb17346222" width=100 height=100/>>
+<video src="https://github.com/user-attachments/assets/b88cea71-aa97-45c2-a36c-dd8328393614" width=100 height=100/>
       <p align="center">
       4 assignment 2 notes Thursday final exam 💔
       <p align="center">
