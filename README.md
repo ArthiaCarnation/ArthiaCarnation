@@ -8,7 +8,7 @@
                                   <p align="center">
             <img width="300" src="https://github.com/user-attachments/assets/f01798cd-73b1-41bf-921d-589eea88c2f6" alt=![1000925567]>
             <p align="center">
-                  IM SORRY ITS SO RUSHED THE ELECTRIC WENT OFF FOR 10H   <p align="center">
+                  IM SORRY ITS SO RUSHED THE ELECTRICITY WENT OFF FOR 10H   <p align="center">
                            <p align="center">
              <img width="400" src=https://github.com/user-attachments/assets/6e753ab7-5cd0-4a10-a594-141449b0ce61 alt=![Screenshot_10]>
                  <p align="center">
