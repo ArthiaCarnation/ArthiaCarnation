@@ -67,7 +67,7 @@
             <p align="center">
                   Venti Icon is Art by Chura , Venti pony by miko  Suggest to see this on light mode 
                   <p align="center">
-                        <img width="300" src="https://github.com/user-attachments/assets/f15ddb8d-0677-4a86-a98e-bc7c8b96c828" alt=![1000924230]>
+                        <img width="300" src="https://github.com/user-attachments/assets/c9684a36-f64d-4dbc-aaa6-6a917e9e35a6" alt=![1000925575]>
 <p align="center">
             <img width="500" src="https://github.com/user-attachments/assets/49fe849e-4450-492a-89a2-1fa2859ae8e3' alt=![1000923604]>
 <p align="center">
