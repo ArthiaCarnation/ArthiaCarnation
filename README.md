@@ -1,6 +1,10 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
+         <p align="center">
+             <img width="200" src=https://github.com/user-attachments/assets/6e753ab7-5cd0-4a10-a594-141449b0ce61 alt=![Screenshot_10]>
+                 <p align="center">
+                       diamond teir cost 1445 omgg bro 
       <p align="center">
              <img width="600" src="https://github.com/user-attachments/assets/cf2dce24-bf59-4fe0-8e36-fb5329855953"alt =![Screenshot_8]>
                           <p align="center">
@@ -12,7 +16,7 @@
             <p align="center">
 <video src="https://github.com/user-attachments/assets/b774dd73-4109-49ab-94ca-0da49fa735b8" width=100 height=100/>
       <p align="center">
-  <img width="500" src=https://github.com/user-attachments/assets/1733cf41-3202-4566-91f4-90d2cea2aa8d alt=![Screenshot_9]>
+  <img width="300" src=https://github.com/user-attachments/assets/1733cf41-3202-4566-91f4-90d2cea2aa8d alt=![Screenshot_9]>
             <p align="center">
                  HER RED EYELASHES ARE VERYTHING UPCOMING ART BY DAWYNE 
  <p align="center">
