@@ -2,9 +2,11 @@
 <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
+            <img width="500" src="https://github.com/user-attachments/assets/f01798cd-73b1-41bf-921d-589eea88c2f6" alt=![1000925567]>
+            <p align="center">
+                  IM SORRY ITS SO RUSHED THE ELECTRIC WENT OFF FOR 10H
+            <p align="center">
 <video src="https://github.com/user-attachments/assets/b774dd73-4109-49ab-94ca-0da49fa735b8" width=100 height=100/>
-      <p align="center">
-      4 assignment 2 notes Thursday final exam 💔
       <p align="center">
   <img width="500" src=https://github.com/user-attachments/assets/bde98ca3-5994-4ede-a819-99842bc976ae alt= ![1000924831]>
             <p align="center">
