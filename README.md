@@ -12,9 +12,9 @@
             <p align="center">
 <video src="https://github.com/user-attachments/assets/b774dd73-4109-49ab-94ca-0da49fa735b8" width=100 height=100/>
       <p align="center">
-  <img width="500" src=https://github.com/user-attachments/assets/bde98ca3-5994-4ede-a819-99842bc976ae alt= ![1000924831]>
+  <img width="500" src=https://github.com/user-attachments/assets/1733cf41-3202-4566-91f4-90d2cea2aa8d alt=![Screenshot_9]>
             <p align="center">
-                  i got way too excited so ima spoil it art by dawyne upcoming 
+                 HER RED EYELASHES ARE VERYTHING UPCOMING ART BY DAWYNE 
  <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
