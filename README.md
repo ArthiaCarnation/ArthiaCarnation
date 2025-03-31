@@ -1,14 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
-      https://rentry.co/HevenCallout
- <p align="center">
-<video src="https://github.com/user-attachments/assets/067463e1-5c73-4c2e-9ff4-6c04eefdc4f5" width=100 height=100/>
-       <p align="center">
-             THANK YOU SOMUHC KEROO AAAA
-              <p align="center">
-  <img width="300" src=https://github.com/user-attachments/assets/1733cf41-3202-4566-91f4-90d2cea2aa8d alt=![Screenshot_9]>
-            <p align="center">
-                 HER RED EYELASHES ARE VERYTHING UPCOMING ART BY DAWYNE 
+      https://rentry.co/HevenCallout     
  <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
@@ -83,6 +75,8 @@
 <video src="https://github.com/user-attachments/assets/86e4b74b-56f6-4431-bb2d-6902a91f6729" alt=![1000916384]>
       <p align="center">
 <video src=https://github.com/user-attachments/assets/962d0477-741c-4760-889f-4ed29d4ce238 width=100 height=100/>
+       <p align="center">
+<video src="https://github.com/user-attachments/assets/067463e1-5c73-4c2e-9ff4-6c04eefdc4f5" width=100 height=100/>    
       <p align="center">
             <video src= https://github.com/user-attachments/assets/4e4084a5-47d0-43ea-a1ad-7d305a4ea06f width=100 height=100/>
 
