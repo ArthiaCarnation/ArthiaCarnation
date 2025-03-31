@@ -1,21 +1,11 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
-      <p align="center">
-             <img width="600" src="https://github.com/user-attachments/assets/cf2dce24-bf59-4fe0-8e36-fb5329855953"alt =![Screenshot_8]>
-                          <p align="center">
-                                OMGGG I LOVE THISSS
-                                  <p align="center">
-            <img width="300" src="https://github.com/user-attachments/assets/f01798cd-73b1-41bf-921d-589eea88c2f6" alt=![1000925567]>
-            <p align="center">
-                  IM SORRY ITS SO RUSHED THE ELECTRICITY WENT OFF FOR 10H   <p align="center">
-                           <p align="center">
-             <img width="400" src=https://github.com/user-attachments/assets/6e753ab7-5cd0-4a10-a594-141449b0ce61 alt=![Screenshot_10]>
-                 <p align="center">
-                       diamond teir cost 1445 omgg bro 
-            <p align="center">
-<video src="https://github.com/user-attachments/assets/b774dd73-4109-49ab-94ca-0da49fa735b8" width=100 height=100/>
-      <p align="center">
+ <p align="center">
+<video src="https://github.com/user-attachments/assets/067463e1-5c73-4c2e-9ff4-6c04eefdc4f5" width=100 height=100/>
+       <p align="center">
+             THANK YOU SOMUHC KEROO AAAA
+              <p align="center">
   <img width="300" src=https://github.com/user-attachments/assets/1733cf41-3202-4566-91f4-90d2cea2aa8d alt=![Screenshot_9]>
             <p align="center">
                  HER RED EYELASHES ARE VERYTHING UPCOMING ART BY DAWYNE 
@@ -65,23 +55,30 @@
     <img width="230" src="https://github.com/user-attachments/assets/703c739a-5e08-4711-8182-bdec8b75eb51" alt=![pony-town-Venti'sBride 💍🌸-boop-sit-blinking-toy349-4x]>
  <img width="208" src="https://github.com/user-attachments/assets/7aa78790-573d-477d-9dbe-8ea6e4286004" alt=![pony-town-I'm a wrecked when I'm with u-boop-sit-blinking-toy364-4x]>
             <p align="center">
-                  Venti Icon is Art by Chura , Venti pony by miko  Suggest to see this on light mode 
+                Venthia Pixel by Kao , SunsetLemonade/Namecard by Dwayneartz 𝘋𝘸𝘢𝘺𝘯𝘦𝘢𝘳𝘵𝘻 Venti Icon  by Chura Venti pony by Miko
                   <p align="center">
                         <img width="300" src="https://github.com/user-attachments/assets/c9684a36-f64d-4dbc-aaa6-6a917e9e35a6" alt=![1000925575]>
 <p align="center">
-            <img width="500" src="https://github.com/user-attachments/assets/49fe849e-4450-492a-89a2-1fa2859ae8e3' alt=![1000923604]>
+<img width="300" src="https://github.com/user-attachments/assets/cf2dce24-bf59-4fe0-8e36-fb5329855953"alt =!![Screenshot_4]>
+<img width="300" src="https://github.com/user-attachments/assets/015a115b-64d0-45bd-bdad-ddd0878bd810" alt=![Screenshot_4]>
 <p align="center">
             <img width="400" src="https://github.com/user-attachments/assets/d44c0020-8c13-4c28-a0c9-fc426092b5c1" alt= ![1000915525]>
             <p align="center">
-        <img width="400" src="https://github.com/user-attachments/assets/1c17796a-7336-419b-b10b-a8ca2baba30c" alt=![1000918153]>
+        <img width="400" src="https://github.com/user-attachments/assets/1c17796a-7336-419b-b10b-a8ca2baba30c" alt=![1000918153]> 
          <p align="center">
         <img width="400" src="https://github.com/user-attachments/assets/17cfd7eb-6753-41db-b334-4402e12df2a4" alt=![1000916384]>
+                <p align="center">
+                <img width="400" src="https://github.com/user-attachments/assets/f376469c-4ec6-4cb8-8f60-70127c7f9655" alt=![Screenshot_3]>
+                  <p align="center">
+                     Venthia 1 by Xeneless Venthia 2 by Erhlia Venthia 3 by Latjaevel Venthia 4 by Kyuari Venthia 5 by Keira
                         <p align="center">
        <img width="400" src="https://github.com/user-attachments/assets/2dd3439f-93c9-4b0a-bf51-b3f131af4f65" alt=![1000924342]>
                               <p align="center">
          <img width="400" src="https://github.com/user-attachments/assets/d325d54d-90a1-4956-86ca-cd31d33e7366" alt=![1000922634]>
                                     <p align="center">
             <img width="500" src="https://github.com/user-attachments/assets/d9c61b34-31e5-435a-b72f-c73a0d571a22" alt = [1000922263]>
+                                           <p align="center">
+<video src="https://github.com/user-attachments/assets/b774dd73-4109-49ab-94ca-0da49fa735b8" width=100 height=100/>
       <p align="center">
 <video src="https://github.com/user-attachments/assets/86e4b74b-56f6-4431-bb2d-6902a91f6729" alt=![1000916384]>
       <p align="center">
