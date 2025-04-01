@@ -44,8 +44,8 @@
 <p align="center">
             <img width="230" src="https://github.com/user-attachments/assets/33169273-0ea5-4acc-bb04-f851821f7a69" alt=![Screenshot_15]> <img width="250" src="https://static.wikia.nocookie.net/gensin-impact/images/e/ec/Namecard_Background_Venti_Azure_Sky.png/revision/latest?cb=20210330005404">
       <p align="center">
-    <img width="230" src="https://github.com/user-attachments/assets/703c739a-5e08-4711-8182-bdec8b75eb51" alt=![pony-town-Venti'sBride 💍🌸-boop-sit-blinking-toy349-4x]>
- <img width="208" src="https://github.com/user-attachments/assets/7aa78790-573d-477d-9dbe-8ea6e4286004" alt=![pony-town-I'm a wrecked when I'm with u-boop-sit-blinking-toy364-4x]>
+ <img width="208" src="https://github.com/user-attachments/assets/e0ac3207-1ba7-4bb3-974f-346efb3df1a6" alt=![pony-town-🌼-sit-blinking-name-4x]>
+ <img width="208" src="https://github.com/user-attachments/assets/395d14a8-627e-4e04-8971-181a06ba6005" alt=![pony-town-🍎-sit-blinking-name-4x (1)]>
             <p align="center">
                 Venthia Pixel by Kao , SunsetLemonade/Namecard by Dwayneartz 𝘋𝘸𝘢𝘺𝘯𝘦𝘢𝘳𝘵𝘻 Venti Icon  by Chura Venti pony by Miko
                   <p align="center">
