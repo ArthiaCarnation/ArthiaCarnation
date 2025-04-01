@@ -47,7 +47,7 @@
  <img width="208" src="https://github.com/user-attachments/assets/e0ac3207-1ba7-4bb3-974f-346efb3df1a6" alt=![pony-town-🌼-sit-blinking-name-4x]>
  <img width="208" src="https://github.com/user-attachments/assets/395d14a8-627e-4e04-8971-181a06ba6005" alt=![pony-town-🍎-sit-blinking-name-4x (1)]>
             <p align="center">
-                Venthia Pixel by Kao , SunsetLemonade/Namecard by Dwayneartz 𝘋𝘸𝘢𝘺𝘯𝘦𝘢𝘳𝘵𝘻 Venti Icon  by Chura Venti pony by Miko
+                Venthia Pixel by Kao , SunsetLemonade/Namecard by Dwayneartz Venti Icon  by Chura Venti pony by Miko
                   <p align="center">
                         <img width="300" src="https://github.com/user-attachments/assets/c9684a36-f64d-4dbc-aaa6-6a917e9e35a6" alt=![1000925575]>
 <p align="center">
