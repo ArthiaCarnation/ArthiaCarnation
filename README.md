@@ -2,7 +2,7 @@
 <p align="center">
       https://rentry.co/HevenCallout   
       <p align="center">
-            PEAK SHOW , and new relationship Venthia kin i love nicexmoon I KNOW IT JUST RELEASED YESTERDAY BUT IM LOVING IT ALREADY ANDD THE RANK 2 QUEEN IS SIMILAR TO ARTHIA VOICE AND FACE (from how i imagine) 
+            TWWW SPOILERSSS PEAK SHOW , and new relationship Venthia kin i love nicexmoon I KNOW IT JUST RELEASED YESTERDAY BUT IM LOVING IT ALREADY ANDD THE RANK 2 QUEEN IS SIMILAR TO ARTHIA VOICE AND FACE (from how i imagine) 
       <p align="center">
 <video src="https://github.com/user-attachments/assets/9516c31a-e462-44e9-9304-87f4369fad6c" alt=>
  <p align="center">
