@@ -4,7 +4,11 @@
       <p align="center">
             TWWW SPOILERSSS PEAK SHOW , and new relationship Venthia kin i love nicexmoon I KNOW IT JUST RELEASED YESTERDAY BUT IM LOVING IT ALREADY ANDD THE RANK 2 QUEEN IS SIMILAR TO ARTHIA VOICE AND FACE (from how i imagine) 
       <p align="center">
-<video src="https://github.com/user-attachments/assets/9516c31a-e462-44e9-9304-87f4369fad6c" alt=>
+<video src="https://github.com/user-attachments/assets/9516c31a-e462-44e9-9304-87f4369fad6c">
+      <p align="center">
+            ART BY DAWYNE
+      <p align="center">
+  <img width="200" src="https://github.com/user-attachments/assets/e7682fd7-6891-4211-86a1-6e1570b10677" alt=![1000926067]>
  <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
