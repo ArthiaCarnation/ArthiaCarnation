@@ -1,6 +1,8 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
-      https://rentry.co/HevenCallout   
+      https://rentry.co/HevenCallout 
+      <p align="center">
+            <img width="400" src="https://github.com/user-attachments/assets/ac7e0b84-0d24-4ac1-9777-c6fa7dd046e9" alt=![1000926081]>
       <p align="center">
             TWWW SPOILERSSS PEAK SHOW , and new relationship Venthia kin i love nicexmoon I KNOW IT JUST RELEASED YESTERDAY BUT IM LOVING IT ALREADY ANDD THE RANK 2 QUEEN IS SIMILAR TO ARTHIA VOICE AND FACE (from how i imagine) 
       <p align="center">
