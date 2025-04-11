@@ -4,7 +4,7 @@
       <p align="center">
             <video src="https://github.com/user-attachments/assets/4e514585-b5e8-41df-946c-75184dfce912">
        <p align="center">
-             edited by aoki thank you so muchh!! i think this is more of arthia modern au i love it 😭😭🩷🩷
+            VTUBER ARTHIAAA edited by aoki thank you so muchh!! i think this is more of arthia modern au i love it 😭😭🩷🩷
       <p align="center">
             <img width="400" src="https://github.com/user-attachments/assets/ac7e0b84-0d24-4ac1-9777-c6fa7dd046e9" alt=![1000926081]>
       <p align="center">
