@@ -2,19 +2,15 @@
 <p align="center">
       https://rentry.co/HevenCallout 
       <p align="center">
+            GOFT FROM DAWYNE WAAA THWNK YOU SO MUCHHHH IT MADE MY DAY
+      <p align="center">
+            <video src="https://github.com/user-attachments/assets/6c4dd62e-639e-4c11-8746-05cf1acd8956">
+      <p align="center">
             <video src="https://github.com/user-attachments/assets/4e514585-b5e8-41df-946c-75184dfce912">
        <p align="center">
             VTUBER ARTHIAAA edited by aoki thank you so muchh!! i think this is more of arthia modern au i love it 😭😭🩷🩷 shes so prettyy
       <p align="center">
             <img width="400" src="https://github.com/user-attachments/assets/ac7e0b84-0d24-4ac1-9777-c6fa7dd046e9" alt=![1000926081]>
-      <p align="center">
-            TWWW SPOILERSSS PEAK SHOW , and new relationship Venthia kin i love nicexmoon I KNOW IT JUST RELEASED YESTERDAY BUT IM LOVING IT ALREADY ANDD THE RANK 2 QUEEN IS SIMILAR TO ARTHIA VOICE AND FACE (from how i imagine) 
-      <p align="center">
-<video src="https://github.com/user-attachments/assets/9516c31a-e462-44e9-9304-87f4369fad6c">
-      <p align="center">
-            ART BY DAWYNE
-      <p align="center">
-  <img width="200" src="https://github.com/user-attachments/assets/e7682fd7-6891-4211-86a1-6e1570b10677" alt=![1000926067]>
  <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
