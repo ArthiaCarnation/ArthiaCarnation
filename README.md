@@ -2,7 +2,7 @@
 <p align="center">
       https://rentry.co/HevenCallout 
       <p align="center">
-            GOFT FROM DAWYNE WAAA THWNK YOU SO MUCHHHH IT MADE MY DAY
+            GIFT FROM DAWYNE WAAA THWNK YOU SO MUCHHHH IT MADE MY DAY
       <p align="center">
             <video src="https://github.com/user-attachments/assets/94bc9f35-ea38-42ab-bfc2-bb3b98b667c6">
       <p align="center">
