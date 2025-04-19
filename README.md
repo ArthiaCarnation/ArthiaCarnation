@@ -2,7 +2,7 @@
 <p align="center">
       https://rentry.co/HevenCallout 
       <p align="center">
-            rushed but took me 9 hours what.. spring outfit arthia!! heh i smeak in some apple theme:3
+            rushed but took me 9 hours what.. spring outfit arthia!! heh i sneak in some apple theme:3 full body makes me go nuts 
       <p align="center">
             <img width="300" src="https://github.com/user-attachments/assets/c543bb3b-2c97-4f41-bf43-72aec52e21bb" alt=![1000926687]>
       <p align="center">
