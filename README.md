@@ -4,7 +4,7 @@
       <p align="center">
             rushed but took me 9 hours what.. spring outfit arthia!! heh i sneak in some apple theme:3 full body makes me go nuts 
       <p align="center">
-            <img width="300" src="https://github.com/user-attachments/assets/c543bb3b-2c97-4f41-bf43-72aec52e21bb" alt=![1000926687]>
+            <img width="300" src="https://github.com/user-attachments/assets/2a6ad84b-2fab-4639-8e08-b53d915b1c00" alt=![1000926687]>
       <p align="center">
             <img width="300" src="https://github.com/user-attachments/assets/f443edc0-8cea-4338-bca1-8925ebc30b91" alt=![1000926491]>
       <p align="center">
