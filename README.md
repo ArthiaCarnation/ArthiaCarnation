@@ -1,6 +1,10 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
-      https://rentry.co/HevenCallout 
+      https://rentry.co/HevenCallout
+      <p align="center">
+            IT FEELS LIKE THEM WHEN I THINK ABOUT IT OMGGG
+      <p align="center">
+            <img width="300" src="https://github.com/user-attachments/assets/4c2aaddb-b052-4361-ad89-cab01c61ff8d" alt=![1000926802]>
       <p align="center">
             rushed but took me 9 hours what.. spring outfit arthia!! heh i sneak in some apple theme:3 full body makes me go nuts 
       <p align="center">
