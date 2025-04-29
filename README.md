@@ -2,9 +2,9 @@
 <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
-            <img width="300" src="https://github.com/user-attachments/assets/eb7f3805-0617-4d0f-a20d-2c9b093040ee" alt=![1000927103]>
+            <img width="300" src="https://github.com/user-attachments/assets/b8c35ae4-ce46-479b-b6b1-cee8c3afebf5" alt=![1000927208]>
             <p align="center">
-                  rmking probably will take me a weeks 1/10
+                   1/10 please do not take inspo i made this without even tracing or looking at genshin emotes so its my originality and my version of chibis
       <p align="center">
             IT FEELS LIKE THEM WHEN I THINK ABOUT IT OMGGG
       <p align="center">
