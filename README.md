@@ -3,28 +3,6 @@
       https://rentry.co/HevenCallout
       <p align="center">
             <img width="300" src="https://github.com/user-attachments/assets/b8c35ae4-ce46-479b-b6b1-cee8c3afebf5" alt=![1000927208]>
-            <p align="center">
-                   1/10 please do not take inspo i made this without even tracing or looking at genshin emotes so its my originality and my version of chibis
-      <p align="center">
-            IT FEELS LIKE THEM WHEN I THINK ABOUT IT OMGGG
-      <p align="center">
-            <img width="300" src="https://github.com/user-attachments/assets/4c2aaddb-b052-4361-ad89-cab01c61ff8d" alt=![1000926802]>
-      <p align="center">
-            rushed but took me 9 hours what.. spring outfit arthia!! heh i sneak in some apple theme:3 full body makes me go nuts 
-      <p align="center">
-            <img width="300" src="https://github.com/user-attachments/assets/a474b0f6-36c4-449a-a8fa-a3efd6b267f1" alt=![1000926703]>
-      <p align="center">
-            <img width="300" src="https://github.com/user-attachments/assets/f443edc0-8cea-4338-bca1-8925ebc30b91" alt=![1000926491]>
-      <p align="center">
-            GIFT FROM DAWYNE WAAA THWNK YOU SO MUCHHHH IT MADE MY DAY
-      <p align="center">
-            <video src="https://github.com/user-attachments/assets/94bc9f35-ea38-42ab-bfc2-bb3b98b667c6">
-      <p align="center">
-            <video src="https://github.com/user-attachments/assets/4e514585-b5e8-41df-946c-75184dfce912">
-       <p align="center">
-            VTUBER ARTHIAAA edited by aoki thank you so muchh!! i think this is more of arthia modern au i love it 😭😭🩷🩷 shes so prettyy
-      <p align="center">
-            <img width="400" src="https://github.com/user-attachments/assets/ac7e0b84-0d24-4ac1-9777-c6fa7dd046e9" alt=![1000926081]>
  <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
@@ -95,6 +73,8 @@
             <img width="500" src="https://github.com/user-attachments/assets/d9c61b34-31e5-435a-b72f-c73a0d571a22" alt = [1000922263]>
                                            <p align="center">
 <video src="https://github.com/user-attachments/assets/b774dd73-4109-49ab-94ca-0da49fa735b8" width=100 height=100/>
+        <p align="center">
+ <video src="https://github.com/user-attachments/assets/94bc9f35-ea38-42ab-bfc2-bb3b98b667c6">
       <p align="center">
 <video src="https://github.com/user-attachments/assets/86e4b74b-56f6-4431-bb2d-6902a91f6729" alt=![1000916384]>
       <p align="center">
@@ -102,8 +82,9 @@
        <p align="center">
 <video src="https://github.com/user-attachments/assets/067463e1-5c73-4c2e-9ff4-6c04eefdc4f5" width=100 height=100/>    
       <p align="center">
-            <video src= https://github.com/user-attachments/assets/4e4084a5-47d0-43ea-a1ad-7d305a4ea06f width=100 height=100/>
-
+ <video src= https://github.com/user-attachments/assets/4e4084a5-47d0-43ea-a1ad-7d305a4ea06f width=100 height=100/>
+      <p align="center">
+ <video src="https://github.com/user-attachments/assets/4e514585-b5e8-41df-946c-75184dfce912">
 
 
 
