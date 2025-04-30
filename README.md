@@ -2,7 +2,7 @@
 <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
-            "your so better than me!" "i dont like this but i like you" "your better than this person"  i dont like people taking a compliment in this way , i realize the bad affect of it and now i dislike it putting someone else down or comparing yourself towards me/others is NOT my kind of compliment its just to boost someone's confident yes BUT they talk bad about another person quietly its kinda toxic (my opinion) 
+            "your so better than me!" "i dont like this but i like you" "your better than this person"  i dont like people taking a compliment in this way , i realize the bad affect of it and now i dislike it putting someone else down or comparing yourself towards me/others is NOT my kind of compliment its just to boost someone's confident yes BUT they talk bad about another person/yourself quietly its kinda toxic (my opinion) 
       <p align="center">
             <img width="300" src="https://github.com/user-attachments/assets/0d02a7d1-5210-48b4-98cd-3ac04b0ab6d0" alt=![bc7fb42a-e2c7-4dc0-ac83-bdd5e6c009ca]>
             <p align="center">
