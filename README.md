@@ -1,10 +1,10 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
-      <p align="center">
-            THANK YOU DWAYNE 🤑🤑🤑🤑🤑🤑🤑🤑🤑
             <p align="center">
             <img width="600" src="https://github.com/user-attachments/assets/6edfc5a1-2721-4646-ad2f-00cb71ea166d" alt=![1000927803]>
+                  <p align="center">
+            THANK YOU DWAYNE 🤑🤑🤑🤑🤑🤑🤑🤑🤑
             <p align="center">
             <img width="400" src="https://github.com/user-attachments/assets/560d244d-1d83-4435-bda0-a62d2ce094ad" alt=![1000927431]>
             <img width="400" src="https://github.com/user-attachments/assets/be7ba80e-db6b-4430-beaf-d2f18a20f296" alt=![1000927433]>
