@@ -4,6 +4,8 @@
       <p align="center">
             THANK YOU DWAYNE 🤑🤑🤑🤑🤑🤑🤑🤑🤑
             <p align="center">
+            <img width="600" src="https://github.com/user-attachments/assets/0f86487d-809c-4943-a879-659120735bb6" alt=![1000927795]>
+            <p align="center">
             <img width="400" src="https://github.com/user-attachments/assets/560d244d-1d83-4435-bda0-a62d2ce094ad" alt=![1000927431]>
             <img width="400" src="https://github.com/user-attachments/assets/be7ba80e-db6b-4430-beaf-d2f18a20f296" alt=![1000927433]>
                      <p align="center">
