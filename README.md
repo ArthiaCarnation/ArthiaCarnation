@@ -2,7 +2,7 @@
 <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
-            <img width="600" src="https://github.com/user-attachments/assets/38e41497-4d2a-4125-a760-d09b91694607" alt=![1000927842]>
+            <img width="400" src="https://github.com/user-attachments/assets/38e41497-4d2a-4125-a760-d09b91694607" alt=![1000927842]>
             <p align="center">
                   remaking cause i cant stand her looking at me like that on her old one
                   <p align="center">
