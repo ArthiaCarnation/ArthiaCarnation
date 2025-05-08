@@ -2,6 +2,8 @@
 <p align="center">
       https://rentry.co/HevenCallout
             <p align="center">
+                  ITS 500 NOT 1500
+                    <p align="center">
             <img width="600" src="https://github.com/user-attachments/assets/6edfc5a1-2721-4646-ad2f-00cb71ea166d" alt=![1000927803]>
                   <p align="center">
             THANK YOU DWAYNE 🤑🤑🤑🤑🤑🤑🤑🤑🤑
