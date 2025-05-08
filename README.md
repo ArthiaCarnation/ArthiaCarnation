@@ -2,6 +2,14 @@
 <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
+            <img width="600" src="https://github.com/user-attachments/assets/38e41497-4d2a-4125-a760-d09b91694607" alt=![1000927842]>
+            <p align="center">
+                  remaking cause i cant stand her looking at me like that on her old one
+                  <p align="center">
+            <img width="600" src="https://github.com/user-attachments/assets/77c96d5b-1573-49b3-8bf1-61aff79417ec" alt=![1000927843]>
+                        <p align="center">
+                              OMGG DWAYNE HUHUHU😭😭♥️♥️♥️
+      <p align="center">
             "when was the last time you draw arthia and venti together" dang i dont know maybe 2023 and only had like 2 arts of them HELPP everytime i attempt to draw them VENTI is the one always getting removed 
             <p align="center">
                   ITS 500 NOT 1500
