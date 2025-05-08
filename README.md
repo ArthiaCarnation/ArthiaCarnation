@@ -2,7 +2,7 @@
 <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
-            "when was the last time you draw arthia and venti together" dang i dont know maybe 2023 and only had like 2 arts of them HELPP
+            "when was the last time you draw arthia and venti together" dang i dont know maybe 2023 and only had like 2 arts of them HELPP everytime i attempt to draw them VENTI is the one always getting removed 
             <p align="center">
                   ITS 500 NOT 1500
                     <p align="center">
