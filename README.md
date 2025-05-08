@@ -13,6 +13,9 @@
             <img width="600" src="https://github.com/user-attachments/assets/77c96d5b-1573-49b3-8bf1-61aff79417ec" alt=![1000927843]>
                         <p align="center">
                               OMGG DWAYNE HUHUHU😭😭♥️♥️♥️
+                              <p align="center">
+            <img width="400" src="https://github.com/user-attachments/assets/757a3754-992d-4df5-bde7-150c3cb90457" alt=![1000927836]>                        <p align="center">
+                                    THANK YOU SM VETHER   
       <p align="center">
             "when was the last time you draw arthia and venti together" dang i dont know maybe 2023 and only had like 2 arts of them HELPP everytime i attempt to draw them VENTI is the one always getting removed 
             <p align="center">
