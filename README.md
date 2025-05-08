@@ -5,10 +5,6 @@
             HELPPP I GOT TOO LAZY IM FOCUSING ON HER ICON
       <p align="center">
             <img width="400" src="https://github.com/user-attachments/assets/14993c3d-399d-47b3-ac4c-db47fd8283a6" alt=![1000927867]>
-      <p align="center">
-            <img width="400" src="https://github.com/user-attachments/assets/38e41497-4d2a-4125-a760-d09b91694607" alt=![1000927842]>
-            <p align="center">
-                  remaking cause i cant stand her looking at me like that on her old one
                   <p align="center">
             <img width="600" src="https://github.com/user-attachments/assets/77c96d5b-1573-49b3-8bf1-61aff79417ec" alt=![1000927843]>
                         <p align="center">
