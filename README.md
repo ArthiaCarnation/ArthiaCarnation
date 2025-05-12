@@ -2,6 +2,10 @@
 <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
+            'how many times do you have to remake her' until im satisfied i wont stop
+      <p align="center">
+            <img width="400" src="https://github.com/user-attachments/assets/5e82e891-f7cf-4f8e-92cb-f362162530a0" alt=![1000928088]>
+      <p align="center">
             HELPPP I GOT TOO LAZY IM FOCUSING ON HER ICON
       <p align="center">
             <img width="400" src="https://github.com/user-attachments/assets/14993c3d-399d-47b3-ac4c-db47fd8283a6" alt=![1000927867]>
