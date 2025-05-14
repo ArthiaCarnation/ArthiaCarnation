@@ -1,6 +1,15 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
+         <p align="center">
+              <video src="https://github.com/user-attachments/assets/fb8b8262-c433-4fe9-9dbc-de999cf3d3ba">
+       <p align="center">
+             YAYY THNK VETHTERR
+             <p align="center">
+             <img width="300" src="https://github.com/user-attachments/assets/16370a6c-cf49-46b7-9869-b722f3e24701" alt=![Screenshot_7]>
+             <p align="center">
+<p align="center">
+ <video src="https://github.com/user-attachments/assets/8192c089-a3a4-4219-9e29-7294f8c20a8c">
       <p align="center">
             HAHAHHAHA
       <p align="center">
@@ -10,12 +19,14 @@
       <p align="center">
             <img width="400" src="https://github.com/user-attachments/assets/14993c3d-399d-47b3-ac4c-db47fd8283a6" alt=![1000927867]>
                   <p align="center">
-            <img width="600" src="https://github.com/user-attachments/assets/77c96d5b-1573-49b3-8bf1-61aff79417ec" alt=![1000927843]>
+            <img width="400" src="https://github.com/user-attachments/assets/31e16643-d875-47bd-9dfe-0c20a2d3b1a1" alt=![Screenshot_8]>
+  <img width="400" src="https://github.com/user-attachments/assets/f5644f70-656e-456c-8b22-bc8dd7fa2726" alt=![gi-venti-wish]>
                         <p align="center">
                               OMGG DWAYNE HUHUHU😭😭♥️♥️♥️
                               <p align="center">
-            <img width="400" src="https://github.com/user-attachments/assets/757a3754-992d-4df5-bde7-150c3cb90457" alt=![1000927836]>                        <p align="center">
-                                    THANK YOU SM VETHER   
+            <img width="400" src="https://github.com/user-attachments/assets/757a3754-992d-4df5-bde7-150c3cb90457" alt=![1000927836]>
+       <p align="center">
+       THANK YOU SM VETHER   
       <p align="center">
             "when was the last time you draw arthia and venti together" dang i dont know maybe 2023 and only had like 2 arts of them HELPP everytime i attempt to draw them VENTI is the one always getting removed 
             <p align="center">
