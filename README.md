@@ -2,6 +2,8 @@
 <p align="center">
       https://rentry.co/HevenCallout
          <p align="center">
+               IBIS DELETD ONE OF MY LAYERS IM MAD RNNN yk what im determin to finish arthia body sheet this aint gonna stop me
+         <p align="center">
               <video src="https://github.com/user-attachments/assets/fb8b8262-c433-4fe9-9dbc-de999cf3d3ba">
        <p align="center">
              YAYY THNK VETHTERR
