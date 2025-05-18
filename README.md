@@ -4,7 +4,7 @@
       <p align="center">
             FUNFACT angels on arthia Kingdom has a symbol of a sea fairy angel ( quick sketch of arthia constellation, im focusing on something else this week...im NOT giving out leaks this time )
       <p align="center">
-             <img width="300" src="https://github.com/user-attachments/assets/1a48141a-bed3-42d5-833d-d922dc5f2a09" alt=![1000928583]>
+             <img width="300" src="https://github.com/user-attachments/assets/21b016f7-ec00-4b51-a1f4-d909aa30ba9c" alt=![1000928585]>
          <p align="center">
                IBIS DELETD ONE OF MY LAYERS IM MAD RNNN yk what im determin to finish arthia body sheet this aint gonna stop me
          <p align="center">
