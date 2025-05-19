@@ -11,6 +11,8 @@
                   MOOTIE WHAT IS THIS HELP MEEE
 <p align="center">
 <video src="https://github.com/user-attachments/assets/2025d393-f5c0-4f80-8bde-b4865636d8d8">
+      <p align="center">
+            <img width="300" src="https://github.com/user-attachments/assets/886442da-66b3-4a45-90cd-0f72e8154e4b" alt=![1000928681]>
          <p align="center">
               <video src="https://github.com/user-attachments/assets/fb8b8262-c433-4fe9-9dbc-de999cf3d3ba">
        <p align="center">
