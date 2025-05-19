@@ -6,7 +6,7 @@
             <p align="center">
                   AAAA THIS IS SO CUTE ART BY LAILAI
             <p align="center">
-                  <img width="300" src="https://github.com/user-attachments/assets/062628af-9560-49bc-9147-72b0d71f7e34" alt=![1000928679]>
+                  <img width="600" src="https://github.com/user-attachments/assets/062628af-9560-49bc-9147-72b0d71f7e34" alt=![1000928679]>
             <p align="center">
                   MOOTIE WHAT IS THIS HELP MEEE
 <p align="center">
