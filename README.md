@@ -2,7 +2,7 @@
 <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
-          IM NOT SHOWING ANYMORE LEAKS
+          keeping the low profile on TikTok i dont want to get dox ;_;
             <p align="center">
                   AAAA THIS IS SO CUTE ART BY LAILAI
             <p align="center">
