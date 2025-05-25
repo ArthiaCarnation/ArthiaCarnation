@@ -1,8 +1,34 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
-      <p align="center">
-          keeping the low profile on TikTok i dont want to get dox ;_;
+       <p align="left">
+            UPCOMING POST IDEAS (by order) Notes im always working with these
+              <p align="left">
+            Arthia introduction
+             <p align="left">
+            Ardeveus x Glorizeda Animation - Sports Car tatemcrae (will work on after posting)
+                <p align="left">
+            Arthia's Voice w/ Vether
+             <p align="left">
+            Nameless Bard x Viviana ,  edit something stupid  frank and nancy sinatra (not sure)
+               <p align="left">
+            Arthia's emote
+               <p align="left">
+            Kenzo , Seven and Arven model / body sheet 
+               <p align="left">
+            Nameless bard headcanon design and Viviana model
+               <p align="left">
+            remake venthia sims4 (not sure on this one yet)
+               <p align="left">
+            Creator self intoduction (chii , still thinking)
+            <p align="left">
+            Venthia art (uh...doubting)
+                    <p align="left">
+            Arthia family portait w/ ethan new design
+                          <p align="left">
+            Finish Arthia lore    
+            <p align="left">
+            Venthia , Seven and Meijer edit / slight animation - Undress sombr (Not sure)
             <p align="center">
                   AAAA THIS IS SO CUTE ART BY LAILAI
             <p align="center">
