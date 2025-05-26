@@ -1,7 +1,11 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
-       <p align="left">
+      <p align="center">
+            Glorizeda new design!! i made it 1am... just a quick one
+       <p align="center">
+                  <img width="600" src="https://github.com/user-attachments/assets/9e64c354-4dd9-4e5f-b9d8-0ebe0a031f9c" alt=![1000929226]>
+             <p align="left">
             UPCOMING POST IDEAS (by order) Notes im always working with these
               <p align="left">
             Arthia introduction
