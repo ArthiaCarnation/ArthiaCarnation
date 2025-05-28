@@ -1,95 +1,14 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
-      <p align="center">
-            Glorizeda new design!! i made it 1am... just a quick one
-       <p align="center">
-                  <img width="300" src="https://github.com/user-attachments/assets/9e64c354-4dd9-4e5f-b9d8-0ebe0a031f9c" alt=![1000929226]>
-             <p align="left">
-            UPCOMING POST IDEAS (by order) Notes im always working with these
-              <p align="left">
-            Arthia introduction
-             <p align="left">
-            Ardeveus x Glorizeda Animation - Sports Car tatemcrae (will work on after posting)
-                   <p align="left">
-                         Venthia Animation/Meme - Masochism tango(will work at with arthia voice)
-                <p align="left">
-            Arthia's Voice w/ Vether
-             <p align="left">
-            Nameless Bard x Viviana ,  edit something stupid  frank and nancy sinatra (not sure)
-               <p align="left">
-            Arthia's emote
-               <p align="left">
-            Kenzo , Seven and Arven model / body sheet 
-               <p align="left">
-            Nameless bard headcanon design and Viviana model
-               <p align="left">
-            remake venthia sims4 (not sure on this one yet)
-               <p align="left">
-            Creator self intoduction (chii , still thinking)
-            <p align="left">
-            Venthia art (uh...doubting)
-                    <p align="left">
-            Arthia family portait w/ ethan new design
-                          <p align="left">
-            Finish Arthia lore    
-            <p align="left">
-            Venthia , Seven and Meijer edit / slight animation - Undress sombr (Not sure)
-            <p align="center">
-                  AAAA THIS IS SO CUTE ART BY LAILAI
-            <p align="center">
-                  <img width="600" src="https://github.com/user-attachments/assets/062628af-9560-49bc-9147-72b0d71f7e34" alt=![1000928679]>
-            <p align="center">
-                  MOOTIE WHAT IS THIS HELP MEEE
-<p align="center">
-<video src="https://github.com/user-attachments/assets/2025d393-f5c0-4f80-8bde-b4865636d8d8">
-      <p align="center">
-            <img width="300" src="https://github.com/user-attachments/assets/886442da-66b3-4a45-90cd-0f72e8154e4b" alt=![1000928681]>
          <p align="center">
-              <video src="https://github.com/user-attachments/assets/fb8b8262-c433-4fe9-9dbc-de999cf3d3ba">
+               "i dont see leon and Ada as Venthia" nah you just dont see it and its so much more 
        <p align="center">
-             YAYY THNK VETHTERR
-             <p align="center">
-             <img width="300" src="https://github.com/user-attachments/assets/16370a6c-cf49-46b7-9869-b722f3e24701" alt=![Screenshot_7]>
-             <p align="center">
-<p align="center">
- <video src="https://github.com/user-attachments/assets/8192c089-a3a4-4219-9e29-7294f8c20a8c">
+       <video src="https://github.com/user-attachments/assets/e35a7ce5-167d-41c6-8bb2-ec6bae715a7d">
+          <p align="center">
+                Almost done ill fix this github/rentry once im done remaking everything
       <p align="center">
-            HAHAHHAHA
-      <p align="center">
-            <img width="400" src="https://github.com/user-attachments/assets/1c7a43db-b6d4-4d18-8cc3-2dd6cd8f3781" alt=![1000928123]>
-      <p align="center">
-            HELPPP I GOT TOO LAZY IM FOCUSING ON HER ICON
-      <p align="center">
-            <img width="400" src="https://github.com/user-attachments/assets/14993c3d-399d-47b3-ac4c-db47fd8283a6" alt=![1000927867]>
-                  <p align="center">
-            <img width="400" src="https://github.com/user-attachments/assets/31e16643-d875-47bd-9dfe-0c20a2d3b1a1" alt=![Screenshot_8]>
-  <img width="400" src="https://github.com/user-attachments/assets/f5644f70-656e-456c-8b22-bc8dd7fa2726" alt=![gi-venti-wish]>
-                        <p align="center">
-                              OMGG DWAYNE HUHUHU😭😭♥️♥️♥️
-                              <p align="center">
-            <img width="400" src="https://github.com/user-attachments/assets/757a3754-992d-4df5-bde7-150c3cb90457" alt=![1000927836]>
-       <p align="center">
-       THANK YOU SM VETHER   
-      <p align="center">
-            "when was the last time you draw arthia and venti together" dang i dont know maybe 2023 and only had like 2 arts of them HELPP everytime i attempt to draw them VENTI is the one always getting removed 
-            <p align="center">
-                  ITS 500 NOT 1500
-                    <p align="center">
-            <img width="600" src="https://github.com/user-attachments/assets/6edfc5a1-2721-4646-ad2f-00cb71ea166d" alt=![1000927803]>
-                  <p align="center">
-            THANK YOU DWAYNE 🤑🤑🤑🤑🤑🤑🤑🤑🤑
-            <p align="center">
-            <img width="400" src="https://github.com/user-attachments/assets/560d244d-1d83-4435-bda0-a62d2ce094ad" alt=![1000927431]>
-            <img width="400" src="https://github.com/user-attachments/assets/be7ba80e-db6b-4430-beaf-d2f18a20f296" alt=![1000927433]>
-                     <p align="center">
-                          <img width="300" src="https://github.com/user-attachments/assets/d799811b-ba91-4f34-9ca9-d99cec629ca8" alt=![Screenshot_9]>
-                            <p align="center">
-                                  VETHER TSKKKK
-      <p align="center">
-            <img width="300" src="https://github.com/user-attachments/assets/b8c35ae4-ce46-479b-b6b1-cee8c3afebf5" alt=![1000927208]>
-               <p align="center">
-            <img width="300" src="https://github.com/user-attachments/assets/ae3e89e1-3930-4eac-ae9a-8c9a24460d96" alt=![793ef142-5359-46f8-a501-11cc821adb99]>
+        
  <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
@@ -123,7 +42,7 @@
 <p align="center">
             <img width="250" src="https://github.com/user-attachments/assets/7912e46b-3214-4be5-8b2a-bb7b54045169" alt =![ezgif-7-f864e75b8b]>
 <p align="center">
-              <img width="250" src ="https://github.com/user-attachments/assets/7a1e1bb7-d620-4ac9-a2f8-60643e6a76a7" alt=![1000921667]>
+       <img width="240" src="https://github.com/user-attachments/assets/b8c35ae4-ce46-479b-b6b1-cee8c3afebf5" alt=![1000927208]>
          <img width="253" src ="https://github.com/user-attachments/assets/db7d71bf-882f-4e65-aa45-b89715775b3f" alt =![1000913695]>
                 <p align="center">
 <img width="330" src="https://github.com/user-attachments/assets/8374d063-3a52-4a45-aa4c-d5e7b632e202" alt=![1000923893]>
@@ -135,8 +54,10 @@
       <p align="center">
  <img width="208" src="https://github.com/user-attachments/assets/6f728753-5a1a-4f2c-90c8-73aec5069749" alt=![pony-town-🌸-sit-blinking-name-toy349-4x]>
  <img width="208" src="https://github.com/user-attachments/assets/395d14a8-627e-4e04-8971-181a06ba6005" alt=![pony-town-🍎-sit-blinking-name-4x (1)]>
+             <p align="center">
+                        <img width="400" src="https://github.com/user-attachments/assets/757a3754-992d-4df5-bde7-150c3cb90457" alt=![1000927836]>
             <p align="center">
-                Venthia Pixel by Kao , SunsetLemonade/Namecard by Dwayneartz Venti Icon  by Chura Venti pony by Miko
+                Venthia Pixel by Kao , SunsetLemonade/Namecard by Dwayneartz Venti Icon  by Chura Venti pony by Miko , Venthia by Vether
                   <p align="center">
                         <img width="300" src="https://github.com/user-attachments/assets/c9684a36-f64d-4dbc-aaa6-6a917e9e35a6" alt=![1000925575]>
 <p align="center">
@@ -172,8 +93,12 @@
  <video src= https://github.com/user-attachments/assets/4e4084a5-47d0-43ea-a1ad-7d305a4ea06f width=100 height=100/>
       <p align="center">
  <video src="https://github.com/user-attachments/assets/4e514585-b5e8-41df-946c-75184dfce912">
-
-
+    <p align="center">
+<video src="https://github.com/user-attachments/assets/2025d393-f5c0-4f80-8bde-b4865636d8d8">
+    <p align="center">
+   <video src="https://github.com/user-attachments/assets/fb8b8262-c433-4fe9-9dbc-de999cf3d3ba">
+   <p align="center">
+ <video src="https://github.com/user-attachments/assets/8192c089-a3a4-4219-9e29-7294f8c20a8c">
 
 
 
