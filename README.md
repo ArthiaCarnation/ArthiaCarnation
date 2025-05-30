@@ -1,16 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
-       <p align="center">
-             heh im done with it im just waiting for dwayne
-         <p align="center">
-                <img width="500" src="https://i.ibb.co/0VCKxynK/Untitled397-20250530123750-1.webp">
-                <p align="center">
-               "i dont see leon and Ada as Venthia" nah you just dont see it and its so much more 
-       <p align="center">
-       <video src="https://github.com/user-attachments/assets/e35a7ce5-167d-41c6-8bb2-ec6bae715a7d">
-          <p align="center">
-                Almost done ill fix this github/rentry once im done remaking everything
  <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
