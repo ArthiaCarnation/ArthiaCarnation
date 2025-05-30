@@ -10,7 +10,7 @@
              <p align="center">
                    sooo...here ig..
                    <p align="center">
-             <img width="600" src="https://github.com/user-attachments/assets/2a3e6b6e-ab7b-4a84-882b-0a87725d73ca" alt=![1000929358]>
+             <img width="600" src="https://github.com/user-attachments/assets/5e0c627f-d825-491e-b5c1-c328a0cfc9bf" alt=![1000929380]>
  <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
