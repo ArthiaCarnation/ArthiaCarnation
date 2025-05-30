@@ -1,14 +1,16 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
+       <p align="center">
+             heh im done with it im just waiting for dwayne
          <p align="center">
+                <img width="500" src="https://i.ibb.co/0VCKxynK/Untitled397-20250530123750-1.webp">
+                <p align="center">
                "i dont see leon and Ada as Venthia" nah you just dont see it and its so much more 
        <p align="center">
        <video src="https://github.com/user-attachments/assets/e35a7ce5-167d-41c6-8bb2-ec6bae715a7d">
           <p align="center">
                 Almost done ill fix this github/rentry once im done remaking everything
-      <p align="center">
-        
  <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
@@ -45,7 +47,7 @@
        <img width="240" src="https://github.com/user-attachments/assets/b8c35ae4-ce46-479b-b6b1-cee8c3afebf5" alt=![1000927208]>
          <img width="253" src ="https://github.com/user-attachments/assets/db7d71bf-882f-4e65-aa45-b89715775b3f" alt =![1000913695]>
                 <p align="center">
-<img width="330" src="https://github.com/user-attachments/assets/8374d063-3a52-4a45-aa4c-d5e7b632e202" alt=![1000923893]>
+   <img width="350" src="https://i.ibb.co/0VCKxynK/Untitled397-20250530123750-1.webp">
    <img width="300" src="https://github.com/user-attachments/assets/537221e9-6a95-4bc0-8fad-60405a574f0b" alt=![1000923598]>
                    <p align="center">
               <img width="230" src="https://i.ibb.co/TtQ4693/Untitled298-20250125174348.webp"> <img width="250" src="https://i.ibb.co/c2FVZdd/Item-A-Buoyant-Breeze.png">
