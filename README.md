@@ -1,6 +1,10 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
+        <p align="center">
+              ART BY XENELESS TYSMM (while i wait for dwayne ima do chiiwara arthia her constellation and crown pixel rmk)
+       <p align="center">
+             <img width="200" src="https://i.ibb.co/MkzWcnLc/IMG-0028-png-1.webp">
  <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
