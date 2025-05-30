@@ -4,7 +4,11 @@
         <p align="center">
               ART BY XENELESS TYSMM (while i wait for dwayne ima do chiiwara arthia her constellation and crown pixel rmk)
        <p align="center">
-             <img width="200" src="https://i.ibb.co/MkzWcnLc/IMG-0028-png-1.webp">
+             <img width="300" src="https://github.com/user-attachments/assets/331ee6ee-7a26-4072-81d6-090da7a0ec91" alt=![1000929247]>
+             <p align="center">
+                   sooo...here ig..
+                   <p align="center">
+             <img width="600" src="https://github.com/user-attachments/assets/0b2f7565-56c7-47de-9f68-64f2e0f40d55" alt=![1000929350]>
  <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
