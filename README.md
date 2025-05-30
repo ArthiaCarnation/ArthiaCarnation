@@ -8,7 +8,7 @@
              <p align="center">
                    sooo...here ig..
                    <p align="center">
-             <img width="600" src="https://github.com/user-attachments/assets/0b2f7565-56c7-47de-9f68-64f2e0f40d55" alt=![1000929350]>
+             <img width="600" src="https://github.com/user-attachments/assets/2a3e6b6e-ab7b-4a84-882b-0a87725d73ca" alt=![1000929358]>
  <p align="center">
   <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
@@ -45,7 +45,7 @@
        <img width="240" src="https://github.com/user-attachments/assets/b8c35ae4-ce46-479b-b6b1-cee8c3afebf5" alt=![1000927208]>
          <img width="253" src ="https://github.com/user-attachments/assets/db7d71bf-882f-4e65-aa45-b89715775b3f" alt =![1000913695]>
                 <p align="center">
-   <img width="350" src="https://i.ibb.co/0VCKxynK/Untitled397-20250530123750-1.webp">
+   <img width="350" src=https://github.com/user-attachments/assets/fb734971-9211-4342-aba0-e4e101bc1acc alt=![1000929359]>
    <img width="300" src="https://github.com/user-attachments/assets/537221e9-6a95-4bc0-8fad-60405a574f0b" alt=![1000923598]>
                    <p align="center">
               <img width="230" src="https://i.ibb.co/TtQ4693/Untitled298-20250125174348.webp"> <img width="250" src="https://i.ibb.co/c2FVZdd/Item-A-Buoyant-Breeze.png">
