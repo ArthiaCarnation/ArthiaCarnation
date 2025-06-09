@@ -4,7 +4,7 @@
             <p align="center">
                   ART BY DWAYNE 
                   <p align="center">
-             <img width="300" src="https://github.com/user-attachments/assets/a5c9c167-89c7-4732-b811-acc913176a49" alt=![1000930411]>
+             <img width="600" src="https://github.com/user-attachments/assets/a5c9c167-89c7-4732-b811-acc913176a49" alt=![1000930411]>
       <p align="center">
              <img width="300" src="https://github.com/user-attachments/assets/2d983c9e-cf77-4460-b9be-618c2e97427e" alt=![1000930037]>
       <p align="center">
