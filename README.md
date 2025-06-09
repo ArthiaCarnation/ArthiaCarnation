@@ -1,8 +1,14 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
+            <p align="center">
+                  ART BY DWAYNE 
+                  <p align="center">
+             <img width="300" src="https://github.com/user-attachments/assets/a5c9c167-89c7-4732-b811-acc913176a49" alt=![1000930411]>
       <p align="center">
-             <img width="200" src="https://github.com/user-attachments/assets/037a8f9c-c3d9-4284-bfbe-e6dca061c917" alt=![1000929366]>
+             <img width="300" src="https://github.com/user-attachments/assets/2d983c9e-cf77-4460-b9be-618c2e97427e" alt=![1000930037]>
+      <p align="center">
+             <img width="200" src="https://github.com/user-attachments/assets/c486f17b-38a4-4749-a99f-43dde17537c9" alt=![1000929366]>
         <p align="center">
               ART BY XENELESS TYSMM
        <p align="center">
