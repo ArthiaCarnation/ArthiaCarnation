@@ -48,7 +48,7 @@ Golden retriever — Black Cat
       <p align="center">
  <img width="330" src="https://i.ibb.co/WpNzqTnX/Untitled420-20250610112740-1.webp"> <img width="350" src="https://github.com/user-attachments/assets/c2fe8f8a-8897-44f6-8bab-8c0426022973" alt =![tumblr_98a28b4dd345667a6a42b318e1eccbff_e6334f28_1280]>
       <p align="center">
-<img width="330" src="https://i.ibb.co/3gPCLyW/1000027293.webp">  <img width="330" src="https://i.ibb.co/HLc5CWKs/0ffd4b6fc7660535aa98acea7087356f-5589198692701090302.webp">
+<img width="330" src="https://i.ibb.co/3gPCLyW/1000027293.webp" alt="1000027293">  <img width="330" src="https://i.ibb.co/HLc5CWKs/0ffd4b6fc7660535aa98acea7087356f-5589198692701090302.webp">
                 <p align="center">
  <img width="208" src="https://github.com/user-attachments/assets/6f728753-5a1a-4f2c-90c8-73aec5069749" alt=![pony-town-🌸-sit-blinking-name-toy349-4x]>
  <img width="208" src="https://github.com/user-attachments/assets/395d14a8-627e-4e04-8971-181a06ba6005" alt=![pony-town-🍎-sit-blinking-name-4x (1)]>
