@@ -1,40 +1,28 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
-            <p align="center">
-                  ART BY DWAYNE 
-                  <p align="center">
-             <img width="600" src="https://github.com/user-attachments/assets/a5c9c167-89c7-4732-b811-acc913176a49" alt=![1000930411]>
-      <p align="center">
-             <img width="300" src="https://github.com/user-attachments/assets/2d983c9e-cf77-4460-b9be-618c2e97427e" alt=![1000930037]>
-      <p align="center">
-             <img width="200" src="https://github.com/user-attachments/assets/c486f17b-38a4-4749-a99f-43dde17537c9" alt=![1000929366]>
-        <p align="center">
-              ART BY XENELESS TYSMM
-       <p align="center">
-             <img width="300" src="https://github.com/user-attachments/assets/331ee6ee-7a26-4072-81d6-090da7a0ec91" alt=![1000929247]>
-             <p align="center">
-                   sooo...here ig..
-                   <p align="center">
-             <img width="600" src="https://github.com/user-attachments/assets/81d95003-77b3-4e71-9ec0-5089c06f922b" alt=![1000929390]>
- <p align="center">
-  <img width="200" src="https://i.ibb.co/87MkH4D/Untitled174.webp">
   <p align="center">
-𝙰𝚋𝚘𝚞𝚝 𝚢𝚘𝚞 𝚝𝚑𝚎 𝟷𝟿𝟽𝟻
-  <p align="right">
-𝘋𝘰 𝘺𝘰𝘶 𝘵𝘩𝘪𝘯𝘬 𝘐 𝘩𝘢𝘷𝘦 𝘧𝘰𝘳𝘨𝘰𝘵𝘵𝘦𝘯
-        <p align="right">
-𝗔𝗯𝗼𝘂𝘁 𝘆𝗼𝘂?
-<p align="left">
-𝘵𝘩𝘦𝘳𝘦 𝘸𝘢𝘴 𝘴𝘰𝘮𝘦𝘵𝘩𝘪𝘯𝘨 '𝘣𝘰𝘶𝘵 𝘺𝘰𝘶 𝘵𝘩𝘢𝘵 𝘯𝘰𝘸 𝘐 𝘤𝘢𝘯'𝘵 𝘳𝘦𝘮𝘦𝘮𝘣𝘦𝘳
-                        <p align="left">
-𝘐𝘵'𝘴 𝘵𝘩𝘦 𝘴𝘢𝘮𝘦 𝘥𝘢𝘮𝘯 𝘵𝘩𝘪𝘯𝘨 𝘵𝘩𝘢𝘵 𝘮𝘢𝘥𝘦 𝘮𝘺 𝘩𝘦𝘢𝘳𝘵 𝘴𝘶𝘳𝘳𝘦𝘯𝘥𝘦𝘳
-                                <p align="left">
-𝘈𝘯𝘥 𝘐 𝘮𝘪𝘴𝘴 𝘺𝘰𝘶 𝘰𝘯 𝘢 𝘵𝘳𝘢𝘪𝘯, 𝘐 𝘮𝘪𝘴𝘴 𝘺𝘰𝘶 𝘪𝘯 𝘵𝘩𝘦 𝘮𝘰𝘳𝘯𝘪𝘯𝘨
-                                        <p align="left">
-𝗜 𝗻𝗲𝘃𝗲𝗿 𝗸𝗻𝗼𝘄 𝘄𝗵𝗮𝘁 𝘁𝗼 𝘁𝗵𝗶𝗻𝗸 𝗮𝗯𝗼𝘂𝘁
-                   <p align="right">                            
-𝗜 𝘁𝗵𝗶𝗻𝗸 𝗮𝗯𝗼𝘂𝘁 𝘆𝗼𝘂
+METAPHORS PAIRS
+          <p align="center">
+Venthia Things
+      <p align="center">            
+He fell first — She fell Harder
+              <p align="center">
+"I'm never letting you go" — "Hold me tight"
+                      <p align="center">
+"My Goddess" — "My Freedom"
+                           <p align="center">   
+The Shore — The Ocean
+                          <p align="center">         
+He is the melody — She is the Lyrics
+                               <p align="center">   
+The Spirit — The Body
+                                  <p align="center">     
+Golden retriever — Black Cat
+                               <p align="center">           
+"I'm never letting you go" — "Hold me tight"
+                                       <p align="center">
+"I love you more" — "i love you most"    
                  <p align="center">
                  ────୨ৎ────
   <p align="center">
@@ -60,10 +48,14 @@
 <p align="center">
             <img width="230" src="https://github.com/user-attachments/assets/33169273-0ea5-4acc-bb04-f851821f7a69" alt=![Screenshot_15]> <img width="250" src="https://static.wikia.nocookie.net/gensin-impact/images/e/ec/Namecard_Background_Venti_Azure_Sky.png/revision/latest?cb=20210330005404">
       <p align="center">
+            <img width="330" src="https://i.ibb.co/WpNzqTnX/Untitled420-20250610112740-1.webp">  <img width="350" src="https://github.com/user-attachments/assets/c2fe8f8a-8897-44f6-8bab-8c0426022973" alt =![tumblr_98a28b4dd345667a6a42b318e1eccbff_e6334f28_1280]>
+      <p align="center">
+ <img width="330" src="https://i.ibb.co/3gPCLyW/1000027293.webp"  <img width="330" src="https://i.ibb.co/HLc5CWKs/0ffd4b6fc7660535aa98acea7087356f-5589198692701090302.webp">
+                <p align="center">
  <img width="208" src="https://github.com/user-attachments/assets/6f728753-5a1a-4f2c-90c8-73aec5069749" alt=![pony-town-🌸-sit-blinking-name-toy349-4x]>
  <img width="208" src="https://github.com/user-attachments/assets/395d14a8-627e-4e04-8971-181a06ba6005" alt=![pony-town-🍎-sit-blinking-name-4x (1)]>
-             <p align="center">
-                        <img width="400" src="https://github.com/user-attachments/assets/757a3754-992d-4df5-bde7-150c3cb90457" alt=![1000927836]>
+            <p align="center">
+          <img width="400" src="https://github.com/user-attachments/assets/757a3754-992d-4df5-bde7-150c3cb90457" alt=![1000927836]>
             <p align="center">
                 Venthia Pixel by Kao , SunsetLemonade/Namecard by Dwayneartz Venti Icon  by Chura Venti pony by Miko , Venthia by Vether
                   <p align="center">
