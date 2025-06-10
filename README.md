@@ -19,9 +19,7 @@ He is the melody — She is the Lyrics
 The Spirit — The Body
                                   <p align="center">     
 Golden retriever — Black Cat
-                               <p align="center">           
-"I'm never letting you go" — "Hold me tight"
-                                       <p align="center">
+                               <p align="center">
 "I love you more" — "i love you most"    
                  <p align="center">
                  ────୨ৎ────
