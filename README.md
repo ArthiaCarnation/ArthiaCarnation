@@ -1,6 +1,12 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
+       <p align="center">
+             "wheres arthia lore"
+        <p align="center">
+                <img width="300" src="https://github.com/user-attachments/assets/435d934e-f05b-4672-b248-3906d1ffe511" alt=![Screenshot_7]>
+                 <p align="center">
+                <img width="400" src="https://github.com/user-attachments/assets/93d68067-f920-41ec-a996-c592ca958da7" alt=![Screenshot_6]>
   <p align="center">
 METAPHORS PAIRS
           <p align="center">
