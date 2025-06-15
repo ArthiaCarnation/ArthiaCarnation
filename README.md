@@ -6,7 +6,7 @@
          <p align="center">
                ARTHIA MENTION AAAAAA TYSMM I WASNT EVEN MOOT WITH THEM AND THIS IS HIGHLY UNEXPECTED :D
        <p align="center">
-                <img width="300" src="(https://github.com/user-attachments/assets/8b826319-3a35-4fdf-8fea-e64f42797d8c" alt=![Screenshot_1]>
+                <img width="300" src="https://github.com/user-attachments/assets/8b826319-3a35-4fdf-8fea-e64f42797d8c" alt=![Screenshot_1]>
        <p align="center">
              "wheres arthia lore"
         <p align="center">
