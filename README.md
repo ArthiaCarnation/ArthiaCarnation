@@ -2,7 +2,7 @@
 <p align="center">
       https://rentry.co/HevenCallout
         <p align="center">
-              school is starting slow updating for now ill be posting more on my titok story
+             "arthia is such a bad person! she left her whole family! her childhood was so forced" mischaratazation final boss 
          <p align="center">
                ARTHIA MENTION AAAAAA TYSMM I WASNT EVEN MOOT WITH THEM AND THIS IS HIGHLY UNEXPECTED :D
        <p align="center">
