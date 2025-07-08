@@ -2,17 +2,7 @@
 <p align="center">
       https://rentry.co/HevenCallout
         <p align="center">
-             "arthia is such a bad person! she left her whole family! her childhood was so forced" mischaratazation final boss 
-         <p align="center">
-               ARTHIA MENTION AAAAAA TYSMM I WASNT EVEN MOOT WITH THEM AND THIS IS HIGHLY UNEXPECTED :D
-       <p align="center">
-                <img width="300" src="https://github.com/user-attachments/assets/8b826319-3a35-4fdf-8fea-e64f42797d8c" alt=![Screenshot_1]>
-       <p align="center">
-             "wheres arthia lore"
-        <p align="center">
-                <img width="300" src="https://github.com/user-attachments/assets/435d934e-f05b-4672-b248-3906d1ffe511" alt=![Screenshot_7]>
-                 <p align="center">
-                <img width="400" src="https://github.com/user-attachments/assets/93d68067-f920-41ec-a996-c592ca958da7" alt=![Screenshot_6]>
+          i cant update here all the time so make sure to check my tiktok for updates!!
   <p align="center">
 METAPHORS PAIRS
           <p align="center">
