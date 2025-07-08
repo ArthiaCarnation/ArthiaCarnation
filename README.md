@@ -1,6 +1,8 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
+      <p align="center">
+            <img width="100" src="https://github.com/user-attachments/assets/19907dd0-c6dc-46cf-8441-b1d2da48b41f" alt=![1000933306]>
         <p align="center">
           i cant update here all the time so make sure to check my tiktok for updates!!
   <p align="center">
