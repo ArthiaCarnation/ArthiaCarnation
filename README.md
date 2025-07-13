@@ -2,17 +2,17 @@
 <p align="center">
       https://rentry.co/HevenCallout
 <p align="center">
-scenerio / Summary : Senior High Confession, At School Feild trip venti invites Arthia to sneak away from the camp and follow him to a quiet hill he knows. He tells her it’s just for a “private band practice,” but deep down, Hes hiding the fact that hes about to confess his feelings, Venti sets up a small camp with a blanket, and his guitar. The mood is peaceful and calm,When arthia asked about the song Venti says it’s new and “unfinished,” pretending to keep it casual. As he begins to sing, the lyrics slowly reveal his true feelings
+Scenerio / Summary : Senior High Confession, At School Feild trip Venti invites Arthia to sneak away from the camp and follow him to a quiet hill he knows. He tells her it’s just for a “private band practice,” but deep down, Hes hiding the fact that hes about to confess his feelings, Venti sets up a small camp with a blanket, and his guitar. The mood is peaceful and calm,When arthia asked about the song Venti says it’s new and “unfinished,” pretending to keep it casual. As he begins to sing, the lyrics slowly reveal his true feelings
 <p align="Right">
 Venti : "Arthia... i like you
 I’ve liked you since we were kids.
 I like how you’d sneak out just to see me even when your father warned you not to.
 I like how fearless you are, You stood up like you had nothing to lose. I like you, Arthia.
 Not just tonight. Not just because it’s peaceful.
-But in every single moment we shared, This feeling’s been haunting me since the day you showed up in my life.”
+But in every single moment we shared, This feeling’s have been haunting me since the day you showed up in my life.”
 <p align="left">
-Arthia : "I have been waiting for you to say something..You broke my perfection..You taught me how to live with failure, how to laugh at it, how to grow from it.
-You healed all the broken little pieces I tried to hide,You made me beautiful venti.."
+Arthia : "I have been waiting for you to say something..You broke my perfection , You taught me how to live with failure, how to laugh at it, how to grow from it.
+You healed all the broken little pieces I tried to hide. You made me beautiful Venti.."
 <p align="right">
 Venti : "you have always been beautiful, you just need someone to see it."
       <p align="center">
