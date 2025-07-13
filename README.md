@@ -1,30 +1,24 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
+<p align="center">
+scenerio / Summary : Senior High Confession, At School Feild trip venti invites Arthia to sneak away from the camp and follow him to a quiet hill he knows. He tells her it’s just for a “private band practice,” but deep down, Hes hiding the fact that hes about to confess his feelings, Venti sets up a small camp with a blanket, and his guitar. The mood is peaceful and calm,When arthia asked about the song Venti says it’s new and “unfinished,” pretending to keep it casual. As he begins to sing, the lyrics slowly reveal his true feelings
+<p align="Right">
+Venti : Arthia... i like you
+“I’ve liked you since we were kids.
+I like how you’d sneak out just to see me even when your dad warned you not to.
+I like how fearless you are, You stood up like you had nothing to lose. I like you, Arthia.
+Not just tonight. Not just because it’s peaceful.
+But in every single moment we shared, This feeling’s been haunting me since the day you showed up in my life.”
+<p align="left">
+Arthia : "I have been waiting for you to say something..You broke my perfection..You taught me how to live with failure, how to laugh at it, how to grow from it.
+You healed all the broken little pieces I tried to hide,You made me beautiful venti.."
+<p align="right">
+Venti : "you have always been beautiful, you just need someone to see it."
       <p align="center">
             <img width="400" src="https://github.com/user-attachments/assets/19907dd0-c6dc-46cf-8441-b1d2da48b41f" alt=![1000933306]>
         <p align="center">
           i cant update here all the time so make sure to check my tiktok for updates!!
-  <p align="center">
-METAPHORS PAIRS
-          <p align="center">
-Venthia Things
-      <p align="center">            
-He fell first — She fell Harder
-              <p align="center">
-"I'm never letting you go" — "Hold me tight"
-                      <p align="center">
-"My Goddess" — "My Freedom"
-                           <p align="center">   
-The Shore — The Ocean
-                          <p align="center">         
-He is the melody — She is the Lyrics
-                               <p align="center">   
-The Spirit — The Body
-                                  <p align="center">     
-Golden retriever — Black Cat
-                               <p align="center">
-"I love you more" — "i love you most"    
                  <p align="center">
                  ────୨ৎ────
   <p align="center">
