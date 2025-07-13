@@ -4,8 +4,8 @@
 <p align="center">
 scenerio / Summary : Senior High Confession, At School Feild trip venti invites Arthia to sneak away from the camp and follow him to a quiet hill he knows. He tells her it’s just for a “private band practice,” but deep down, Hes hiding the fact that hes about to confess his feelings, Venti sets up a small camp with a blanket, and his guitar. The mood is peaceful and calm,When arthia asked about the song Venti says it’s new and “unfinished,” pretending to keep it casual. As he begins to sing, the lyrics slowly reveal his true feelings
 <p align="Right">
-Venti : Arthia... i like you
-“I’ve liked you since we were kids.
+Venti : "Arthia... i like you
+I’ve liked you since we were kids.
 I like how you’d sneak out just to see me even when your dad warned you not to.
 I like how fearless you are, You stood up like you had nothing to lose. I like you, Arthia.
 Not just tonight. Not just because it’s peaceful.
