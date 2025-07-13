@@ -6,7 +6,7 @@ scenerio / Summary : Senior High Confession, At School Feild trip venti invites 
 <p align="Right">
 Venti : "Arthia... i like you
 I’ve liked you since we were kids.
-I like how you’d sneak out just to see me even when your dad warned you not to.
+I like how you’d sneak out just to see me even when your father warned you not to.
 I like how fearless you are, You stood up like you had nothing to lose. I like you, Arthia.
 Not just tonight. Not just because it’s peaceful.
 But in every single moment we shared, This feeling’s been haunting me since the day you showed up in my life.”
