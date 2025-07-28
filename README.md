@@ -1,6 +1,10 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
+       <p align="center">
+             WIP ART BY AE RITH HUAHSUDHUDHSUHUHHHJSD TYSSMSMSMMMM
+        <p align="center">
+            <img width="535" height="547" alt="Screenshot_2" src="https://github.com/user-attachments/assets/7e4bb3a8-4051-45ca-b2d2-63e440853a70">
       <p align="center">
             <img width="400" src="https://github.com/user-attachments/assets/19907dd0-c6dc-46cf-8441-b1d2da48b41f" alt=![1000933306]>
         <p align="center">
