@@ -1,10 +1,25 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
+      <p align="center">
+            I TOLD YOU GUYS YOU HAVE MISSED SO MUCH
+      <p align="center">
+            breaking my curse after 2 years ima fix it later heh no rushing 
+      <img width="700" src="https://github.com/user-attachments/assets/b1e2db98-ae9c-493d-a7ce-ef5f63ef144b" alt="1000936507">
+            <p align="center">
+                  OMMGMGMGOMGMG ITS THEM ITS THEM MY YUMESHIP ATYYSSMSM DWAYNE
+            <p align="center">
+                 <img width="400" src="https://github.com/user-attachments/assets/78ec3122-f6a8-49ec-85a0-e423dabd0f89" alt=![1000936509]>
+            <p align="center">
+                  KEIRAA THANK YOU SO MUCHH HRUSHUHHUHHJ
+            <p align="center">
+                   <img width="400" src="https://github.com/user-attachments/assets/1e61cef1-ec95-4b01-bd14-c196b843851e" alt="1000936432">
+      <p align="center">
+            <img width="300" src="https://github.com/user-attachments/assets/25ea30eb-236a-400e-9cd7-e8e2bd93111c" alt="1000935259>
        <p align="center">
-             WIP ART BY AE RITH HUAHSUDHUDHSUHUHHHJSD TYSSMSMSMMMM
+             ART BY AE RITH HUAHSUDHUDHSUHUHHHJSD TYSSMSMSMMMM
         <p align="center">
-            <img width="535" height="547" alt="Screenshot_2" src="https://github.com/user-attachments/assets/7e4bb3a8-4051-45ca-b2d2-63e440853a70">
+              <img width="400" src="https://github.com/user-attachments/assets/35432c07-b908-4346-8f3d-3e7e685ae1f0" alt=![1000935713]>
       <p align="center">
             <img width="400" src="https://github.com/user-attachments/assets/19907dd0-c6dc-46cf-8441-b1d2da48b41f" alt=![1000933306]>
         <p align="center">
