@@ -9,7 +9,7 @@
             <p align="center">
                   OMMGMGMGOMGMG ITS THEM ITS THEM MY YUMESHIP ATYYSSMSM DWAYNE
             <p align="center">
-                 <img width="400" src="https://github.com/user-attachments/assets/78ec3122-f6a8-49ec-85a0-e423dabd0f89" alt=![1000936509]>
+                 <img width="700" src="https://github.com/user-attachments/assets/78ec3122-f6a8-49ec-85a0-e423dabd0f89" alt=![1000936509]>
             <p align="center">
                   KEIRAA THANK YOU SO MUCHH HRUSHUHHUHHJ
             <p align="center">
