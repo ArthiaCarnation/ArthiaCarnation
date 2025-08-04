@@ -14,11 +14,11 @@
                   KEIRAA THANK YOU SO MUCHH HRUSHUHHUHHJ
             <p align="center">
 <img width="400" src="https://github.com/user-attachments/assets/1e61cef1-ec95-4b01-bd14-c196b843851e" alt="1000936432">
-       <p align="center">
-ART BY AE RITH HUAHSUDHUDHSUHUHHHJSD TYSSMSMSMMMM
-              <p align="center">
+<p align="center">
 <img width="300" src="https://github.com/user-attachments/assets/25ea30eb-236a-400e-9cd7-e8e2bd93111c" alt="1000935259">
         <p align="center">
+              ART BY AE RITH HUAHSUDHUDHSUHUHHHJSD TYSSMSMSMMMM
+                     <p align="center">
               <img width="400" src="https://github.com/user-attachments/assets/35432c07-b908-4346-8f3d-3e7e685ae1f0" alt=![1000935713]>
       <p align="center">
             <img width="400" src="https://github.com/user-attachments/assets/19907dd0-c6dc-46cf-8441-b1d2da48b41f" alt=![1000933306]>
