@@ -7,9 +7,9 @@
             breaking my curse after 2 years ima fix it later heh no rushing 
       <img width="700" src="https://github.com/user-attachments/assets/b1e2db98-ae9c-493d-a7ce-ef5f63ef144b" alt="1000936507">
             <p align="center">
-                  OMMGMGMGOMGMG ITS THEM ITS THEM MY YUMESHIP ATYYSSMSM DWAYNE
+                  OMMGMGMGOMGMG ITS THEM ITS THEM MY YUMESHIP ATYYSSMSM DWAYNE ARTHIA'S PARENTS GLORIZEDA AND ARDEVEUS (Yumeship = self shipper) yes i do see myself as Glorizeda second persona and i have been loving Ardeveus since 2020 yes i see arthia ad my daughter thats why im not comfortable with others calling me arthia yes its a nonsharing yumeship since Ardeveus is also an oc its an ocxoc so im kind of meant to be with him /hj he isnt known only i know him or some and yes i dont pretty much like seeing him with others 🙏
             <p align="center">
-                 <img width="500" src="https://github.com/user-attachments/assets/78ec3122-f6a8-49ec-85a0-e423dabd0f89" alt=![1000936509]>
+  <img width="500" src="https://github.com/user-attachments/assets/cbfae399-812f-47a3-a3ba-6b746ce5b9ea" alt="1000936625"  >
             <p align="center">
                   KEIRAA THANK YOU SO MUCHH HRUSHUHHUHHJ
             <p align="center">
