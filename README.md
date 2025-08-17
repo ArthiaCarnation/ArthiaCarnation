@@ -1,8 +1,10 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
+        <p align="center">
+              OH NO MY HANDS SLIP!!! NOW ITS LEAKED!! ARTHIA PRIMACY DESIGN
       <p align="center">
-            I TOLD YOU GUYS YOU HAVE MISSED SO MUCH
+            <img width="532" height="668" alt="Screenshot_6" src="https://github.com/user-attachments/assets/9929c06b-48aa-4f4f-9665-c48315bff44e" />
       <p align="center">
             breaking my curse after 2 years ima fix it later heh no rushing 
       <img width="700" src="https://github.com/user-attachments/assets/e080ab53-2561-4b3c-bbd0-dbc676f3e525" alt="1000938048">
