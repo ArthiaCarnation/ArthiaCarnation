@@ -1,6 +1,12 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
+      <p align="center">
+            my beautiful german boy Seven i did not regret making you the anti villain and most insane person in my every story, i keep listening to Supermassive Blackhole and Take a slice its so him ANYWAYSS WIP ill fix some parts
+      <p align="center">
+            <img width="700" src="https://github.com/user-attachments/assets/4f4b003d-a38e-402c-9f10-6ce43cd115ed" alt=![1000939267]>
+            <p align="center">
+                <img width="800" src="https://github.com/user-attachments/assets/15b89e09-c425-4d3a-823a-4a0682afc549"alt=![1000939266]>
         <p align="center">
               OH NO MY HANDS SLIP!!! NOW ITS LEAKED!! ARTHIA PRIMACY DESIGN
       <p align="center">
