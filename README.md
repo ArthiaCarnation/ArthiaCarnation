@@ -4,17 +4,14 @@
       <p align="center">
             my beautiful german boy Seven i did not regret making you the anti villain and most insane person in my every story, i keep listening to Supermassive Blackhole and Take a slice its so him ANYWAYSS WIP ill fix some parts
       <p align="center">
-            <img width="700" src="https://github.com/user-attachments/assets/4f4b003d-a38e-402c-9f10-6ce43cd115ed" alt=![1000939267]>
+            <img width="500" src="https://github.com/user-attachments/assets/4f4b003d-a38e-402c-9f10-6ce43cd115ed" alt=![1000939267]>
             <p align="center">
-                <img width="800" src="https://github.com/user-attachments/assets/15b89e09-c425-4d3a-823a-4a0682afc549"alt=![1000939266]>
+                <img width="600" src="https://github.com/user-attachments/assets/15b89e09-c425-4d3a-823a-4a0682afc549"alt=![1000939266]>
         <p align="center">
               OH NO MY HANDS SLIP!!! NOW ITS LEAKED!! ARTHIA PRIMACY DESIGN
       <p align="center">
             <img width="532" height="668" alt="Screenshot_6" src="https://github.com/user-attachments/assets/9929c06b-48aa-4f4f-9665-c48315bff44e" />
       <p align="center">
-            breaking my curse after 2 years ima fix it later heh no rushing 
-      <img width="700" src="https://github.com/user-attachments/assets/e080ab53-2561-4b3c-bbd0-dbc676f3e525" alt="1000938048">
-            <p align="center">
                   OMMGMGMGOMGMG ITS THEM ITS THEM MY YUMESHIP ATYYSSMSM DWAYNE ARTHIA'S PARENTS GLORIZEDA AND ARDEVEUS (Yumeship = self shipper) yes i do see myself as Glorizeda second persona and i have been loving Ardeveus since 2020 yes i see arthia ad my daughter thats why im not comfortable with others calling me arthia yes its a nonsharing yumeship since Ardeveus is also an oc its an ocxoc so im kind of meant to be with him /hj he isnt known only i know him or some and yes i dont pretty much like seeing him with others 🙏
             <p align="center">
   <img width="500" src="https://github.com/user-attachments/assets/cbfae399-812f-47a3-a3ba-6b746ce5b9ea" alt="1000936625"  >
