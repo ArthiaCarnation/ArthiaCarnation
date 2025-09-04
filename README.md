@@ -1,30 +1,14 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
-      <p align="center">
-            my beautiful german boy Seven i did not regret making you the anti villain and most insane person in my every story, i keep listening to Supermassive Blackhole and Take a slice its so him ANYWAYSS WIP ill fix some parts
-      <p align="center">
-            <img width="500" src="https://github.com/user-attachments/assets/4f4b003d-a38e-402c-9f10-6ce43cd115ed" alt=![1000939267]>
+           <p align="center">
+                 ART BY MARII YAYAYAY
             <p align="center">
-                <img width="600" src="https://github.com/user-attachments/assets/15b89e09-c425-4d3a-823a-4a0682afc549"alt=![1000939266]>
-        <p align="center">
-              OH NO MY HANDS SLIP!!! NOW ITS LEAKED!! ARTHIA PRIMACY DESIGN
+                  <img width="451" height="456" alt="Screenshot_4" src="https://github.com/user-attachments/assets/b9978cbd-983f-411b-a001-ed45ab070ffd" />
+            <p align="center">
+      TYSM MIMIMI
       <p align="center">
-            <img width="532" height="668" alt="Screenshot_6" src="https://github.com/user-attachments/assets/9929c06b-48aa-4f4f-9665-c48315bff44e" />
-      <p align="center">
-                  OMMGMGMGOMGMG ITS THEM ITS THEM MY YUMESHIP ATYYSSMSM DWAYNE ARTHIA'S PARENTS GLORIZEDA AND ARDEVEUS (Yumeship = self shipper) yes i do see myself as Glorizeda second persona and i have been loving Ardeveus since 2020 yes i see arthia ad my daughter thats why im not comfortable with others calling me arthia yes its a nonsharing yumeship since Ardeveus is also an oc its an ocxoc so im kind of meant to be with him /hj he isnt known only i know him or some and yes i dont pretty much like seeing him with others 🙏
-            <p align="center">
-  <img width="500" src="https://github.com/user-attachments/assets/cbfae399-812f-47a3-a3ba-6b746ce5b9ea" alt="1000936625"  >
-            <p align="center">
-                  KEIRAA THANK YOU SO MUCHH HRUSHUHHUHHJ
-            <p align="center">
-<img width="400" src="https://github.com/user-attachments/assets/1e61cef1-ec95-4b01-bd14-c196b843851e" alt="1000936432">
-<p align="center">
-<img width="300" src="https://github.com/user-attachments/assets/25ea30eb-236a-400e-9cd7-e8e2bd93111c" alt="1000935259">
-        <p align="center">
-              ART BY AE RITH HUAHSUDHUDHSUHUHHHJSD TYSSMSMSMMMM
-                     <p align="center">
-              <img width="400" src="https://github.com/user-attachments/assets/35432c07-b908-4346-8f3d-3e7e685ae1f0" alt=![1000935713]>
+      <img width="339" height="460" alt="Screenshot_5" src="https://github.com/user-attachments/assets/fc7830fc-89d1-4f3f-8bdf-d17f7c0b59e9" />
       <p align="center">
             <img width="400" src="https://github.com/user-attachments/assets/19907dd0-c6dc-46cf-8441-b1d2da48b41f" alt=![1000933306]>
         <p align="center">
@@ -43,10 +27,11 @@
             <img width="100" src="https://github.com/user-attachments/assets/31a49874-7fce-4873-8e61-8fa1e7408672" alt=![1000923423]>
 <p align="center">
             <img width="250" src="https://github.com/user-attachments/assets/7912e46b-3214-4be5-8b2a-bb7b54045169" alt =![ezgif-7-f864e75b8b]>
+   <p align="center">
+             <img width="250" src="https://github.com/user-attachments/assets/09e49a9a-74cc-4e33-bc4e-64ba1f4b9604" alt=![Untitled483_20250904181005]> <img width="260" src="https://github.com/user-attachments/assets/153a50ba-ac89-4528-9522-d65e611d86bf" alt=![Icon_Emoji_Paimon%27s_Paintings_02_Venti_2]>
+                  <p align="center">
+       <img width="240" src="https://github.com/user-attachments/assets/25ea30eb-236a-400e-9cd7-e8e2bd93111c" alt="1000935259"> <img width="240" src="https://github.com/user-attachments/assets/90916fa8-9dc0-40ff-9416-1d52e84f3cf6" alt=![Icon_Emoji_Paimon%27s_Paintings_02_Venti_1]>
 <p align="center">
-       <img width="240" src="https://github.com/user-attachments/assets/b8c35ae4-ce46-479b-b6b1-cee8c3afebf5" alt=![1000927208]>
-         <img width="253" src ="https://github.com/user-attachments/assets/db7d71bf-882f-4e65-aa45-b89715775b3f" alt =![1000913695]>
-                <p align="center">
    <img width="350" src=https://github.com/user-attachments/assets/fb734971-9211-4342-aba0-e4e101bc1acc alt=![1000929359]>
    <img width="300" src="https://github.com/user-attachments/assets/537221e9-6a95-4bc0-8fad-60405a574f0b" alt=![1000923598]>
                    <p align="center">
@@ -63,7 +48,7 @@
             <p align="center">
           <img width="400" src="https://github.com/user-attachments/assets/757a3754-992d-4df5-bde7-150c3cb90457" alt=![1000927836]>
             <p align="center">
-                Venthia Pixel by Kao , SunsetLemonade/Namecard by Dwayneartz Venti Icon  by Chura Venti pony by Miko , Venthia by Vether
+                Venthia Pixel by Kao , SunsetLemonade/Namecard by Dwayneartz Venti Icon  by Chura Venti pony by Miko , Venthia by Vether , Arthia Emote by Keira
                   <p align="center">
                         <img width="300" src="https://github.com/user-attachments/assets/c9684a36-f64d-4dbc-aaa6-6a917e9e35a6" alt=![1000925575]>
 <p align="center">
@@ -78,7 +63,10 @@
                 <p align="center">
                 <img width="400" src="https://github.com/user-attachments/assets/f376469c-4ec6-4cb8-8f60-70127c7f9655" alt=![Screenshot_3]>
                   <p align="center">
-                     Venthia 1 by Xeneless Venthia 2 by Erhlia Venthia 3 by Latjaevel Venthia 4 by Kyuari Venthia 5 by Keira
+                         <p align="center">
+              <img width="400" src="https://github.com/user-attachments/assets/35432c07-b908-4346-8f3d-3e7e685ae1f0" alt=![1000935713]>
+                                   <p align="center">
+                     Venthia 1 by Xeneless Venthia 2 by Erhlia Venthia 3 by Latjaevel Venthia 4 by Kyuari Venthia 5 by Keira Venthia 6 AE RITH
                         <p align="center">
        <img width="400" src="https://github.com/user-attachments/assets/2dd3439f-93c9-4b0a-bf51-b3f131af4f65" alt=![1000924342]>
                               <p align="center">
@@ -91,14 +79,10 @@
  <video src="https://github.com/user-attachments/assets/94bc9f35-ea38-42ab-bfc2-bb3b98b667c6">
       <p align="center">
 <video src="https://github.com/user-attachments/assets/86e4b74b-56f6-4431-bb2d-6902a91f6729" alt=![1000916384]>
-      <p align="center">
-<video src=https://github.com/user-attachments/assets/962d0477-741c-4760-889f-4ed29d4ce238 width=100 height=100/>
        <p align="center">
 <video src="https://github.com/user-attachments/assets/067463e1-5c73-4c2e-9ff4-6c04eefdc4f5" width=100 height=100/>    
       <p align="center">
  <video src= https://github.com/user-attachments/assets/4e4084a5-47d0-43ea-a1ad-7d305a4ea06f width=100 height=100/>
-      <p align="center">
- <video src="https://github.com/user-attachments/assets/4e514585-b5e8-41df-946c-75184dfce912">
     <p align="center">
 <video src="https://github.com/user-attachments/assets/2025d393-f5c0-4f80-8bde-b4865636d8d8">
     <p align="center">
