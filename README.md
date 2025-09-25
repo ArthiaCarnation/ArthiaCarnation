@@ -1,6 +1,31 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
+      <p align="center">
+            Current time : 49:41
+            Arthia:
+            Fix Arthia shadow
+            Add hue stauration color on the edge of the shadow for relection
+            fix Linear color
+            Venti:
+            Add shading/rendering
+            Fix Venti shadow
+            Add hue
+            Fix linear color
+            -
+            reshape venti wings 
+            add render 
+            add shadow
+            add hue
+            redo background color (add clouds maybe)
+            -
+            Linear Floating Flower and flying leaves
+            add shadow
+            add hue
+            color linear
+            -
+            adjut some with Liquify pen....
+            WHO THE FFF SAID ART IS THERAPY IM TRYING TO BREAK MY VENTHIA CURSE SYFM
            <p align="center">
                  ART BY MARII YAYAYAY
             <p align="center">
