@@ -1,6 +1,8 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
+      <p align="center">
+            My biggest headcanon for arthia she's half russian, she works out on the gym everysunday, she knows how to sport dance  and she ties her hair up often i just know arthia is a strong and smart women 
        <p align="center">
           JUST WAIT UNTIL I GET MY XIAOMI PAD 7 ULTRA ILL BE DRIVEN anyways learning my new artstyle....
          <p align="center">
