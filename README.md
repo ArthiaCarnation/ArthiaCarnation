@@ -1,31 +1,14 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
-      <p align="center">
-            Current time : 49:41
-            Arthia:
-            Fix Arthia shadow
-            Add hue stauration color on the edge of the shadow for relection
-            fix Linear color
-            Venti:
-            Add shading/rendering
-            Fix Venti shadow
-            Add hue
-            Fix linear color
-            -
-            reshape venti wings 
-            add render 
-            add shadow
-            add hue
-            redo background color (add clouds maybe)
-            -
-            Linear Floating Flower and flying leaves
-            add shadow
-            add hue
-            color linear
-            -
-            adjut some with Liquify pen....
-            WHO THE FFF SAID ART IS THERAPY IM TRYING TO BREAK MY VENTHIA CURSE SYFM
+       <p align="center">
+          JUST WAIT UNTIL I GET MY XIAOMI PAD 7 ULTRA ILL BE DRIVEN anyways learning my new artstyle....
+         <p align="center">
+                <img width="500" src="https://github.com/user-attachments/assets/c0fa2aaf-f635-4389-98aa-859a932cfff4" alt=![iris_20250928123643 (1)]>
+        <p align="center">
+              I GEN CANNOT FINISH THIS SHITTTTTTT I HAVE A NEW ARTSTYLE TO LEARN AND TS IS PMOOOO
+        <p align="center"> 
+                  <img width="700" src="https://github.com/user-attachments/assets/e356f980-ad4f-46a7-82c5-8b5147d80b0e" alt=![I_HATE_THIS2_Restored3_20250928123820]>
            <p align="center">
                  ART BY MARII YAYAYAY
             <p align="center">
