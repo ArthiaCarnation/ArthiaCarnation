@@ -1,6 +1,8 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
+       <p align="center">
+             gang can we stop assuming things so fast and immediately comment? i have to unfriend/block some people on genshin community there's a drama going on , its a well known creator who's very problematic with their group now im seeing my moots commenting things that werent true to the target THAT IS MY FRIEND and some supporting them. Im not a kind horrible person to wish that problematic person downfall but for sake when will they learn how to accept and move on they already have more than one call out FIVE actually, i am so pissed off to those people who doesnt know anything but to mouth over it especially posting it online, they think its them being targetted that they have to make a comment its being SELF CENTERED and can we STOP WITH THE STALKING im friends with one of the victims and i defended them on each call out cause it wasnt right now im suddenly being stalked with their alts 💔 looks like im not safe even if i blocked them already 
       <p align="center">
             My biggest headcanon for arthia she's half russian, she works out on the gym everysunday, she knows how to sport dance  and she ties her hair up often i just know arthia is a strong and smart women 
        <p align="center">
