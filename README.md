@@ -4,7 +4,7 @@
        <p align="center">
              Arthia 🫣
              <p align="center">
-             <img width="500" src="https://github.com/user-attachments/assets/bdc1c796-3c16-4ea4-8ca6-17c9159b03d2" alt=![1000945209]>
+             <img width="600" src="https://github.com/user-attachments/assets/bdc1c796-3c16-4ea4-8ca6-17c9159b03d2" alt=![1000945209]>
                    <p align="center">
                          TYSMM VII OMGGG
                    <p align="center">
