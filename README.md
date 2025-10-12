@@ -2,6 +2,14 @@
 <p align="center">
       https://rentry.co/HevenCallout
        <p align="center">
+             Arthia 🫣
+             <p align="center">
+             <img width="500" src="https://github.com/user-attachments/assets/bdc1c796-3c16-4ea4-8ca6-17c9159b03d2" alt=![1000945209]>
+                   <p align="center">
+                         TYSMM VII OMGGG
+                   <p align="center">
+                         <img width="300" src="https://github.com/user-attachments/assets/c9d409f2-7f8f-4159-80b5-6cf5ed80cda8" alt=![1000945013]>
+             <p align="center">
           JUST WAIT UNTIL I GET MY XIAOMI PAD 7 ULTRA ILL BE DRIVEN anyways learning my new artstyle....
          <p align="center">
                 <img width="500" src="https://github.com/user-attachments/assets/c0fa2aaf-f635-4389-98aa-859a932cfff4" alt=![iris_20250928123643 (1)]>
@@ -76,15 +84,11 @@
                               <p align="center">
          <img width="400" src="https://github.com/user-attachments/assets/d325d54d-90a1-4956-86ca-cd31d33e7366" alt=![1000922634]>
                                     <p align="center">
-            <img width="500" src="https://github.com/user-attachments/assets/d9c61b34-31e5-435a-b72f-c73a0d571a22" alt = [1000922263]>
-                                           <p align="center">
+<video src="https://github.com/user-attachments/assets/771328e7-3b45-4a59-a926-f2502bf3d0e0">
+                   <p align="center">
 <video src="https://github.com/user-attachments/assets/b774dd73-4109-49ab-94ca-0da49fa735b8" width=100 height=100/>
         <p align="center">
  <video src="https://github.com/user-attachments/assets/94bc9f35-ea38-42ab-bfc2-bb3b98b667c6">
-      <p align="center">
-<video src="https://github.com/user-attachments/assets/86e4b74b-56f6-4431-bb2d-6902a91f6729" alt=![1000916384]>
-       <p align="center">
-<video src="https://github.com/user-attachments/assets/067463e1-5c73-4c2e-9ff4-6c04eefdc4f5" width=100 height=100/>    
       <p align="center">
  <video src= https://github.com/user-attachments/assets/4e4084a5-47d0-43ea-a1ad-7d305a4ea06f width=100 height=100/>
     <p align="center">
