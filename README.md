@@ -1,6 +1,8 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
+      <p align="center">
+            receiving a lot of love this October thank you so much 😭🩷
        <p align="center">
              Arthia 🫣
              <p align="center">
