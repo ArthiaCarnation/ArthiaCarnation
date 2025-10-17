@@ -2,6 +2,8 @@
 <p align="center">
       https://rentry.co/HevenCallout
        <p align="center">
+             Im apparently going selective supporting ships on ventixoc reasons? because there are some people who will secretly hate you for having the same favorite character! which why im cautious on other ships, they neither can be very problematic or a toxic person. I still do support everyone who likes venti buttt... it depends on the creator itself where im supporting at, Honestly this goes general with other ships not only venti. This includes The genshin oc community drama the main reason why im going to be a selective shipper. Its never cool to be talking bad about a certain person secretly!! and calling out mistakes are actually good it just depends on the person how will they take it well. Holding grudges and keep talking about them WONT MAKE YOU MOVE ON. Again i made a note about this before and im so tired about it, and those people who supports problematic persons actually encourage them to do more bad things so please stop, let them take their lesson before supporting them! people can move on and recover let them have their chance. Life is short but short enough to enjoy your life if you did good things!!! I cant really post this thoughts on my tiktok cause ill get stalked badly again SIGHHSHSSS they dont know my github or play pt
+       <p align="center">
              <img width="487" height="262" alt="Screenshot_12" src="https://github.com/user-attachments/assets/026ac43a-2b22-4049-a0d5-351adfc7caba" />
       <p align="center">
             receiving a lot of love this October thank you so much 😭🩷
