@@ -1,6 +1,10 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout
+      <p align="center">
+            smirkss
+      <p align="center">
+            <img width="600" alt="1000945439" src="https://github.com/user-attachments/assets/dae6b025-cd5b-4ae7-b9d4-c9ae46e27701" />
        <p align="center">
             receiving a lot of love this October thank you so much 😭🩷 I higly encourage not to be afraid to approach me!! Little things matter to me 
        <p align="center">
