@@ -2,7 +2,7 @@
 <p align="center">
       https://rentry.co/HevenCallout
        <p align="center">
-            receiving a lot of love this October thank you so much 😭🩷 I higly encourage not to be afraid to approach me!! Litle things matter to me 
+            receiving a lot of love this October thank you so much 😭🩷 I higly encourage not to be afraid to approach me!! Little things matter to me 
        <p align="center">
              <img width="487" height="262" alt="Screenshot_12" src="https://github.com/user-attachments/assets/026ac43a-2b22-4049-a0d5-351adfc7caba" />
        <p align="center">
