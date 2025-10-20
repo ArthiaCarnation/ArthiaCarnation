@@ -4,15 +4,17 @@
       <p align="center">
             SMIRKSSSS
       <p align="center">
-<img width="500" alt="1000945456" src="https://github.com/user-attachments/assets/fcf27a35-7e51-4b6f-8058-ab826ee46d50" />
+<img width="550" alt="1000945456" src="https://github.com/user-attachments/assets/fcf27a35-7e51-4b6f-8058-ab826ee46d50" />
        <p align="center">
             receiving a lot of love this October thank you so much 😭🩷 I higly encourage not to be afraid to approach me!! Little things matter to me 
        <p align="center">
              <img width="487" height="262" alt="Screenshot_12" src="https://github.com/user-attachments/assets/026ac43a-2b22-4049-a0d5-351adfc7caba" />
-       <p align="center">
-             Arthia 🫣
+               <p align="center">
+                     Arthia everysingle day btw
+               <p align="center">
+                    <img width="533" height="296" alt="Screenshot_21" src="https://github.com/user-attachments/assets/e50b1511-5650-4d51-a3ce-d9aba895976d" />
              <p align="center">
-             <img width="600" src="https://github.com/user-attachments/assets/ff839e6c-cae9-4a6b-bbf1-98cd53f30658" alt=![1000945232]>
+             <img width="400" src="https://github.com/user-attachments/assets/ff839e6c-cae9-4a6b-bbf1-98cd53f30658" alt=![1000945232]>
                    <p align="center">
                          TYSMM VII OMGGG
                    <p align="center">
