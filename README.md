@@ -2,7 +2,7 @@
 <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
-            SMIRKSSSS
+           I FREAKING LOVE IT WHEN ARTHIA'S THEME SONG IS MOSTLY CLASSICAL MUSIC heavily on Beethoven virus it has that intensity and elegancy ESPECIALLY WHEN ARTHIA IS A WARRIOR AND A BRIDE 
       <p align="center">
 <img width="550" alt="1000945456" src="https://github.com/user-attachments/assets/fcf27a35-7e51-4b6f-8058-ab826ee46d50" />
        <p align="center">
