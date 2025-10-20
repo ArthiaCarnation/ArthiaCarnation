@@ -4,7 +4,7 @@
       <p align="center">
             SMIRKSSSS
       <p align="center">
-<img width="700" alt="1000945456" src="https://github.com/user-attachments/assets/fcf27a35-7e51-4b6f-8058-ab826ee46d50" />
+<img width="500" alt="1000945456" src="https://github.com/user-attachments/assets/fcf27a35-7e51-4b6f-8058-ab826ee46d50" />
        <p align="center">
             receiving a lot of love this October thank you so much 😭🩷 I higly encourage not to be afraid to approach me!! Little things matter to me 
        <p align="center">
