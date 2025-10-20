@@ -2,9 +2,9 @@
 <p align="center">
       https://rentry.co/HevenCallout
       <p align="center">
-            smirkss
+            SMIRKSSSS
       <p align="center">
-            <img width="600" alt="1000945439" src="https://github.com/user-attachments/assets/dae6b025-cd5b-4ae7-b9d4-c9ae46e27701" />
+ <img width="700" alt="1000945443" src="https://github.com/user-attachments/assets/a0a7585f-6036-4a65-b23d-198baa629068" />
        <p align="center">
             receiving a lot of love this October thank you so much 😭🩷 I higly encourage not to be afraid to approach me!! Little things matter to me 
        <p align="center">
