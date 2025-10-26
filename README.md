@@ -1,6 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
-      https://rentry.co/HevenCallout
+      https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
       <p align="center">
 https://spotify.link/SqeRL8sCCXb
       <p align="center">
