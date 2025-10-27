@@ -1,6 +1,8 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
+       <p align="center">
+             so i finally got my xiaomi pad....smiles.....
       <p align="center">
 https://spotify.link/SqeRL8sCCXb
       <p align="center">
@@ -19,8 +21,6 @@ https://spotify.link/SqeRL8sCCXb
                          TYSMM VII OMGGG
                    <p align="center">
                          <img width="300" src="https://github.com/user-attachments/assets/c9d409f2-7f8f-4159-80b5-6cf5ed80cda8" alt=![1000945013]>
-             <p align="center">
-          JUST WAIT UNTIL I GET MY XIAOMI PAD 7 ULTRA ILL BE DRIVEN anyways learning my new artstyle....
          <p align="center">
                 <img width="500" src="https://github.com/user-attachments/assets/c0fa2aaf-f635-4389-98aa-859a932cfff4" alt=![iris_20250928123643 (1)]>
            <p align="center">
