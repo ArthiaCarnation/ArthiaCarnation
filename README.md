@@ -4,7 +4,7 @@
        <p align="center">
              so i finally got my xiaomi pad....smiles.....
       <p align="center">
-https://spotify.link/SqeRL8sCCXb
+https://spotify.link/SqeRL8sCCXb / https://open.spotify.com/playlist/5zwJNv1uIQBtxEjyAF0Pcv?si=60486c24a4ea4341
       <p align="center">
 <img width="550" alt="1000945456" src="https://github.com/user-attachments/assets/fcf27a35-7e51-4b6f-8058-ab826ee46d50" />
        <p align="center">
