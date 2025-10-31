@@ -21,8 +21,6 @@ https://spotify.link/SqeRL8sCCXb / https://open.spotify.com/playlist/5zwJNv1uIQB
                          TYSMM VII OMGGG
                    <p align="center">
                          <img width="300" src="https://github.com/user-attachments/assets/c9d409f2-7f8f-4159-80b5-6cf5ed80cda8" alt=![1000945013]>
-         <p align="center">
-                <img width="500" src="https://github.com/user-attachments/assets/c0fa2aaf-f635-4389-98aa-859a932cfff4" alt=![iris_20250928123643 (1)]>
            <p align="center">
                  ART BY MARII YAYAYAY
             <p align="center">
