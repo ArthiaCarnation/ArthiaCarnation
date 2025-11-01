@@ -2,7 +2,7 @@
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
       <p align="center">
-         Book 1 Our Promise : The bard and His Goddess 
+         Book 1 Our Promise : The Bard and His Goddess 
       <img width="700" src="https://github.com/user-attachments/assets/cbdee522-896b-498d-8653-d42802a90c21" alt=![1000000185] />
             <p align="center">
                   TYSSSMMMMMM HUHUHU BIG SHOUT OUT TO MY LIL SIS KEIRA thank you so much for giving me tips and references huhu it helped a lot And ILYSMMMMM /PP
