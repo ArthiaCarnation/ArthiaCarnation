@@ -1,8 +1,13 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
-       <p align="center">
-             so i finally got my xiaomi pad....smiles.....
+      <p align="center">
+         Book 1 Our Promise : The bard and His Goddess 
+      <img width="700" src="https://github.com/user-attachments/assets/cbdee522-896b-498d-8653-d42802a90c21" alt=![1000000185] />
+            <p align="center">
+                  TYSSSMMMMMM HUHUHU BIG SHOUT OUT TO MY LIL SIS KEIRA thank you so much for giving me tips and references huhu it helped a lot And ILYSMMMMM /PP
+            <p align="center">
+                  <img width="300" alt="1000000126" src="https://github.com/user-attachments/assets/d8244d3b-e486-41e1-8bf6-264bee0f70c0" />
       <p align="center">
 https://spotify.link/SqeRL8sCCXb / https://open.spotify.com/playlist/5zwJNv1uIQBtxEjyAF0Pcv?si=60486c24a4ea4341
       <p align="center">
