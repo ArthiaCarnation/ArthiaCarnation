@@ -1,15 +1,31 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
+            <p align="center">
+https://spotify.link/SqeRL8sCCXb / https://open.spotify.com/playlist/5zwJNv1uIQBtxEjyAF0Pcv?si=60486c24a4ea4341
       <p align="center">
          Book 1 Our Promise : The Bard and His Goddess 
+              <p align="center">
+    Freedom was supposed to mean following your own heart... but right now his heart was pointing straight toward her.
+                      <p align="center">
+    ────
+            <p align="right">
+    “Venti…” she repeated tasting the name like it carried weight Her eyes softened “You seem… different I can feel something within you only gods carry that kind of power”
+<p align="left">
+Venti’s grin grew quiet but sincere She’d seen right through him
+“Oh? you’ve got quite the eye” he said lowering his voice “What gave me away?”
+<p align="right">
+“Your voice” Arthia replied “The way you sang for the children this morning it carried warmth, not just melody You gave them peace.” Her tone softened almost like she was confessing admiration. Then turning her gaze away again she asked “What are you doing here truly?” Her words hit him deeper than he expected He wasn’t used to being seen like that not for what he gave but for what he meant. He chuckled softly leaning back with a sigh
+<p align="left">
+“I could say I was following destiny" His eyes glimmered as he added softly “…and it led me right to you.”         
+              <p align="center">
       <img width="700" src="https://github.com/user-attachments/assets/cbdee522-896b-498d-8653-d42802a90c21" alt=![1000000185] />
+                       <p align="center">
+                           Im finally going to make Venti blend into Arthia’s world instead of keeping them in separate worlds. in this version my own AU Venti will be a little different his lore remains the same just with different names and settings B1 CHP 1 begins when Arthia as teenager training under her father to earn his approval during this time she meets a mysterious spirit who lives within an ancient tree. They meet only once but years later neither of them realizes that they will meet again When Arthia grows older she is sent to explore the world of Priscusmal to learn about its people and understand life beyond her kingdom so that she may one day become a wiser, stronger queen.
             <p align="center">
-                  TYSSSMMMMMM HUHUHU BIG SHOUT OUT TO MY LIL SIS KEIRA thank you so much for giving me tips and references huhu it helped a lot And ILYSMMMMM /PP
+       ARTHIA IN LIVANA AU THANK YOU SO MUCH KEIRA!!!! AND FOR HELPING ME A LOT WITH MY STRESSFUL DRAWING YOUR REFERENCE HELPED SO MUCH 
             <p align="center">
-                  <img width="300" alt="1000000126" src="https://github.com/user-attachments/assets/d8244d3b-e486-41e1-8bf6-264bee0f70c0" />
-      <p align="center">
-https://spotify.link/SqeRL8sCCXb / https://open.spotify.com/playlist/5zwJNv1uIQBtxEjyAF0Pcv?si=60486c24a4ea4341
+                  <img width="400" alt="1000000126" src="https://github.com/user-attachments/assets/d8244d3b-e486-41e1-8bf6-264bee0f70c0" />
       <p align="center">
 <img width="550" alt="1000945456" src="https://github.com/user-attachments/assets/fcf27a35-7e51-4b6f-8058-ab826ee46d50" />
        <p align="center">
