@@ -19,9 +19,7 @@ Venti’s grin grew quiet but sincere She’d seen right through him
 <p align="left">
 “I could say I was following destiny" His eyes glimmered as he added softly “…and it led me right to you.”         
               <p align="center">
-      <img width="700" src="https://github.com/user-attachments/assets/cbdee522-896b-498d-8653-d42802a90c21" alt=![1000000185] />
-                       <p align="center">
-                           Im finally going to make Venti blend into Arthia’s world instead of keeping them in separate worlds. in this version my own AU Venti will be a little different his lore remains the same just with different names and settings B1 CHP 1 begins when Arthia as teenager training under her father to earn his approval during this time she meets a mysterious spirit who lives within an ancient tree. They meet only once but years later neither of them realizes that they will meet again When Arthia grows older she is sent to explore the world of Priscusmal to learn about its people and understand life beyond her kingdom so that she may one day become a wiser, stronger queen.
+      <img width="800" src="https://github.com/user-attachments/assets/cbdee522-896b-498d-8653-d42802a90c21" alt=![1000000185] />
             <p align="center">
        ARTHIA IN LIVANA AU THANK YOU SO MUCH KEIRA!!!! AND FOR HELPING ME A LOT WITH MY STRESSFUL DRAWING YOUR REFERENCE HELPED SO MUCH 
             <p align="center">
