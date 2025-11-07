@@ -3,6 +3,12 @@
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
             <p align="center">
 https://spotify.link/SqeRL8sCCXb / https://open.spotify.com/playlist/5zwJNv1uIQBtxEjyAF0Pcv?si=60486c24a4ea4341
+                  <p align="center">
+                     Venthia Anniversary   11 / 06 / 25
+                  <p align="center">
+                  <img width="700" alt="1000000457" src="https://github.com/user-attachments/assets/027c8ccb-3480-4e62-a5d4-fc664f3b1b05" />
+                        <p align="center">
+                              Started at August 2 Finished at November 6 (not my best work but okay..)
       <p align="center">
          Book 1 Our Promise : The Bard and His Goddess 
               <p align="center">
