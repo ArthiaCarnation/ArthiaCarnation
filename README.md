@@ -3,6 +3,8 @@
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
             <p align="center">
 https://spotify.link/SqeRL8sCCXb / https://open.spotify.com/playlist/5zwJNv1uIQBtxEjyAF0Pcv?si=60486c24a4ea4341
+                      <p align="center">
+                            A lot of love has been piling up this november, I got my academic award on top of my class, I got my new ipad, finished my drawing in time of Venthia anniversary, my 18th birthday is coming, recieved a lot of gifts special thanks to kiera and dwayne for gifting me arts, many praises from a lot of people, my art is improving the way i wanted im more comfortable to draw with a big screen and my friends gifting me alot of Arthia skin. November is really my happiest month how much more until the end? ill adding this on my journal !!
                   <p align="center">
                      Venthia Anniversary   11 / 06 / 25
                   <p align="center">
