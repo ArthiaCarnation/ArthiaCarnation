@@ -4,6 +4,12 @@
             <p align="center">
 https://spotify.link/SqeRL8sCCXb / https://open.spotify.com/playlist/5zwJNv1uIQBtxEjyAF0Pcv?si=60486c24a4ea4341
                   <p align="center">
+                  Book 2 Our Promise : A Father's sin
+                  <p align="center">
+                        <img width="500"alt="1000000569" src="https://github.com/user-attachments/assets/395ab1ff-01ad-4f56-b72f-fd3b48427f3f" />
+            <p align="Center">
+          Destined to be enemies Doomed father amd daughter :(     
+                  <p align="center">
                      Venthia Anniversary   11 / 06 / 25
                   <p align="center">
                   <img width="700" alt="1000000457" src="https://github.com/user-attachments/assets/027c8ccb-3480-4e62-a5d4-fc664f3b1b05" />
