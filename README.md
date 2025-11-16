@@ -3,7 +3,9 @@
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
       <p align="center">
             i womt be shading the WHOLE body cause mostly need base colors than shading. 
-            Fun fact about: she sometimes throws her halo acting as a second weapon amd her veil to how strangle someone 
+            Fun fact about: she sometimes throws her halo acting as a second weapon and her veil to how strangle someone 
+              <p align="center">
+            Important lore : After arthia became the primacy of priscusmal she constantly need to get strong in order for her not to be KILLED like ilyde/Elias to replace the primacy, the previous primacy must be killed like how arthia killed ilyde now shes the primacy, Every 200 years theres a judgment 'those who violated the law to face shame even it meant for death.'said to arthia lore, Arthia has to fight for her life to those who disobeyed the law. she is always driven by guilt and fear during fights but in her kidness she free those souls to be reborn and start a new life but even sometimes those souls come to violate the law again without having any memory of their previous. The cycle repeats again but arthia has a strong faith with those people, they can change even its means a thousand time. She constantly sacrificing herself on that belief (Ilyde used Xeno than fighting the sinners herself, Ilyde is a faud to fight)
       <p align="center">
             <img width="800" alt="1000001018" src="https://github.com/user-attachments/assets/2fe35fb6-a882-4f9e-ab32-2730f89a54ff" />
         <p align="center">
