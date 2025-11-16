@@ -1,6 +1,11 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
+      <p align="center">
+            i womt be shading the WHOLE body cause mostly need base colors than shading. 
+            Fun fact about: she sometimes throws her halo acting as a second weapon amd her veil to how strangle someone 
+      <p align="center">
+            <img width="800" alt="1000001018" src="https://github.com/user-attachments/assets/2fe35fb6-a882-4f9e-ab32-2730f89a54ff" />
         <p align="center">
               You cant be for real.
         <p align="center">
