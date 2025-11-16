@@ -1,8 +1,12 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
+        <p align="center">
+              You cant be for real.
+        <p align="center">
+              <img width="345" height="513" alt="Screenshot_57" src="https://github.com/user-attachments/assets/6b6ac1cd-7eec-4ae9-aaac-0e5abd0b85c4" />
             <p align="center">
-https://spotify.link/SqeRL8sCCXb / https://open.spotify.com/playlist/5zwJNv1uIQBtxEjyAF0Pcv?si=60486c24a4ea4341
+<img width="374" height="237" alt="Screenshot_22" src="https://github.com/user-attachments/assets/57c8c532-fc95-4f57-84a3-d68439a5d828" />
                   <p align="center">
                   Book 2 Our Promise : A Father's sin
                   <p align="center">
