@@ -18,7 +18,7 @@ Why carry it alone?
 You hold storms meant for a thousand worlds"
         <p align="center">
 ‘Let me be the gentle one,
-the song that steadies your pulse.’ as the world was waiting for her to breathe again.
+the song that steadies your heart.’ the world was waiting for her to breathe again.
         <p align="right">
 "Gods… do not fall.
 They must thrive,
