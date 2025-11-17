@@ -1,10 +1,43 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
+          <p align="center">
+                Act III : The Wind That Held Her
          <p align="center">
-               my queen omg.............................
+           In her restless solitude…
+every thought a storm, every fought, she weeps on her own throne.
+A goddess crowned in sorrow,
+yet pretending the weights held upon her shoulder didn’t crush her bones.
+        <p align="center">
+I became her sanctuary,
+her light, her peace.
+So I whispered,
+        <p align="left">
+"Such a heavy heart, my goddess…
+Why carry it alone?
+You hold storms meant for a thousand worlds"
+        <p align="center">
+‘Let me be the gentle one,
+the song that steadies your pulse.’ as the world was waiting for her to breathe again.
+        <p align="right">
+"Gods… do not fall.
+They must thrive,
+even if it means everything..The world is in my hands, I can never let go."
+        <p align="center">
+the unspoken exhaustion,
+the way her heart flickered like a candle
+begging for a place to rest.
+        <p align="center">
+“Then let me hold you
+while you hold the world.
+Even a goddess deserves a place
+where she can finally let the storms stop.”
+                      <p align="center">
+                            omg that actually made me have time to think i was thinking what would be cutscene would be if she had a story quest its about her wanting freedom 
         <p align="center">
               <img width="251" height="465" alt="Screenshot_58" src="https://github.com/user-attachments/assets/4d8c1ddd-3dda-491f-9f32-89421634e21a" />
+                <p align="center">
+                      ARTHIAAAA
       <p align="center">
             i wont be shading the WHOLE body cause mostly need base colors than shading. 
             Fun fact about: she sometimes throws her halo acting as a second weapon and her veil to strangle someone 
