@@ -33,7 +33,7 @@ while you hold the world.
 Even a goddess deserves a place
 where she can finally let the storms stop.”
                       <p align="center">
-                            omg that actually made me have time to think i was thinking what would be cutscene would be if she had a story quest its about her wanting freedom 
+                            omg that actually made me have time to think i was thinking what would her cutscene would be if she had a story quest its about her wanting freedom 
         <p align="center">
               <img width="251" height="465" alt="Screenshot_58" src="https://github.com/user-attachments/assets/4d8c1ddd-3dda-491f-9f32-89421634e21a" />
                 <p align="center">
