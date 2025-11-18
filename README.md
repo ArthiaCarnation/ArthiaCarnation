@@ -1,10 +1,10 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
+                 <p align="center">
+                    NOT MY ART but will be the momst expensive commision i ever had like omg this is so worth it
         <p align="center">
               <img width="251" height="465" alt="Screenshot_58" src="https://github.com/user-attachments/assets/4d8c1ddd-3dda-491f-9f32-89421634e21a" />
-                <p align="center">
-                      ARTHIAAAA
       <p align="center">
             i wont be shading the WHOLE body cause mostly need base colors than shading. 
             Fun fact about: she sometimes throws her halo acting as a second weapon and her veil to strangle someone 
