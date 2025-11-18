@@ -2,7 +2,7 @@
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
                  <p align="center">
-                    NOT MY ART but will be the momst expensive commision i ever had like omg this is so worth it
+                    NOT MY ART but will be the most expensive commision i ever had this is so worth it
         <p align="center">
               <img width="251" height="465" alt="Screenshot_58" src="https://github.com/user-attachments/assets/4d8c1ddd-3dda-491f-9f32-89421634e21a" />
       <p align="center">
