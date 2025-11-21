@@ -46,7 +46,7 @@ Venti’s grin grew quiet but sincere She’d seen right through him
 <p align="left">
 “I could say I was following destiny" His eyes glimmered as he added softly “…and it led me right to you.”         
               <p align="center">
-      <img width="1000" src="https://github.com/user-attachments/assets/cbdee522-896b-498d-8653-d42802a90c21" alt=![1000000185] />
+      <img width="800" alt="1000001346" src="https://github.com/user-attachments/assets/3e17f874-6a82-4c64-9a2c-32b618109139" />
             <p align="center">
        ARTHIA IN LIVANA AU THANK YOU SO MUCH KEIRA!!!! AND FOR HELPING ME A LOT WITH MY STRESSFUL DRAWING YOUR REFERENCE HELPED SO MUCH 
             <p align="center">
