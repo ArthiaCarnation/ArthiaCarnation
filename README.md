@@ -63,13 +63,7 @@ Venti’s grin grew quiet but sincere She’d seen right through him
               <p align="center">
       <img width="800" alt="1000001346" src="https://github.com/user-attachments/assets/3e17f874-6a82-4c64-9a2c-32b618109139" />
             <p align="center">
-       ARTHIA IN LIVANA AU THANK YOU SO MUCH KEIRA!!!! AND FOR HELPING ME A LOT WITH MY STRESSFUL DRAWING YOUR REFERENCE HELPED SO MUCH 
-            <p align="center">
                   <img width="400" alt="1000000126" src="https://github.com/user-attachments/assets/d8244d3b-e486-41e1-8bf6-264bee0f70c0" />
-      <p align="center">
-<img width="550" alt="1000945456" src="https://github.com/user-attachments/assets/fcf27a35-7e51-4b6f-8058-ab826ee46d50" />
-       <p align="center">
-            receiving a lot of love this October thank you so much 😭🩷 I higly encourage not to be afraid to approach me!! Little things matter to me 
        <p align="center">
              <img width="487" height="262" alt="Screenshot_12" src="https://github.com/user-attachments/assets/026ac43a-2b22-4049-a0d5-351adfc7caba" />
                <p align="center">
