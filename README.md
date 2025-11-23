@@ -14,7 +14,6 @@ her light, her peace.
 "Such a heavy heart, my goddess…
 Why carry it alone?
 You hold storms meant for a thousand worlds.
-    <p align="left">
 Let me be the gentle one,
 the song that steadies your heart
 as the world waits for you to breathe again."
@@ -25,7 +24,6 @@ with a song sung meant for only her alone.
 And so I sang
 Not to silence her storm
 but to give it somewhere safe to break.
-   <p align="left">
 For she is the world’s strength…
 but I am the one who holds her
 when she finally lets herself be fragile.
