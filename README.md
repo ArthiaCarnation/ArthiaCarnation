@@ -10,7 +10,7 @@ didn’t crush her bones.
    <p align="left">
 I became her sanctuary
 her light, her peace.
-   <p align="center">
+   <p align="left">
 "Such a heavy heart, my goddess…
 Why carry it alone?
 You hold storms meant for a thousand worlds.
