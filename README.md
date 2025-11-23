@@ -1,13 +1,39 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
+        <p align="center">
+              In her restless solitude…
+every thought a storm, every fought, she weeps on her own throne.
+A goddess crowned in sorrow,
+yet pretending the weights upon her shoulders
+didn’t crush her bones.
+   <p align="center">
+I became her sanctuary
+her light, her peace.
+   <p align="center">
+"Such a heavy heart, my goddess…
+Why carry it alone?
+You hold storms meant for a thousand worlds.
+   <p align="center">
+Let me be the gentle one,
+the song that steadies your heart
+as the world waits for you to breathe again."
+   <p align="center">
+only I can calm this weeping goddess,
+with a song sung meant for only her alone.
+   <p align="center">
+And so I sang
+Not to silence her storm
+but to give it somewhere safe to break.
+   <p align="center">
+For she is the world’s strength…
+but I am the one who holds her
+when she finally lets herself be fragile.
+   <p align="center">
                  <p align="center">
-                    NOT MY ART but will be the most expensive commision i ever had this is so worth it
+                    NOT MY ART
         <p align="center">
               <img width="251" height="465" alt="Screenshot_58" src="https://github.com/user-attachments/assets/4d8c1ddd-3dda-491f-9f32-89421634e21a" />
-      <p align="center">
-            i wont be shading the WHOLE body cause mostly need base colors than shading. 
-            Fun fact about: she sometimes throws her halo acting as a second weapon and her veil to strangle someone 
               <p align="center">
             Important lore : After arthia became the primacy of priscusmal she constantly need to get strong in order for her not to get KILLED like ilyde/Elias to replace the primacy the previous primacy must be killed like how arthia killed ilyde now shes the primacy, Every 200 years theres a judgment 'those who violated the law to face shame even it meant for death.'said to arthia lore, Arthia has to fight for her life to those who disobeyed the law. she is always driven by guilt and fear during fights but in her kidness she free those souls to be reborn and start a new life but even sometimes those souls come to violate the law again without having any memory of their previous. The cycle repeats again but arthia has a strong faith with those people, they can change even its means a thousand time. She constantly sacrificing herself on that belief (Ilyde used Xeno than fighting the sinners herself, Ilyde is a faud to fight)
       <p align="center">
@@ -17,19 +43,11 @@
         <p align="center">
               <img width="345" height="513" alt="Screenshot_57" src="https://github.com/user-attachments/assets/6b6ac1cd-7eec-4ae9-aaac-0e5abd0b85c4" />
             <p align="center">
-<img width="374" height="237" alt="Screenshot_22" src="https://github.com/user-attachments/assets/57c8c532-fc95-4f57-84a3-d68439a5d828" />
-                  <p align="center">
-                  Book 2 Our Promise : A Father's sin
-                  <p align="center">
-                        <img width="500"alt="1000000569" src="https://github.com/user-attachments/assets/395ab1ff-01ad-4f56-b72f-fd3b48427f3f" />
-            <p align="Center">
-          Destined to be enemies Doomed father amd daughter :(     
+<img width="374" height="237" alt="Screenshot_22" src="https://github.com/user-attachments/assets/57c8c532-fc95-4f57-84a3-d68439a5d828" /> 
                   <p align="center">
                      Venthia Anniversary   11 / 06 / 25
                   <p align="center">
                   <img width="700" alt="1000000457" src="https://github.com/user-attachments/assets/027c8ccb-3480-4e62-a5d4-fc664f3b1b05" />
-                        <p align="center">
-                              Started at August 2 Finished at November 6 (not my best work cause i have a mew artstyle and shading but okay..
       <p align="center">
          Book 1 Our Promise : The Bard and His Goddess 
               <p align="center">
