@@ -6,7 +6,7 @@
 every thought a storm, every fought, she weeps on her own throne.
 A goddess crowned in sorrow,
 yet pretending the weights upon her shoulders
-didn’t crush her bones.
+did not crush her bones.
    <p align="left">
 I became her sanctuary
 her light, her peace.
@@ -18,7 +18,7 @@ Let me be the gentle one,
 the song that steadies your heart
 as the world waits for you to breathe again."
      <p align="left">
-only I can calm this weeping goddess,
+Only I can tranquil this goddess,
 with a song sung meant for only her alone.
     <p align="left">
 And so I sang
