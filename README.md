@@ -1,35 +1,34 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
-        <p align="center">
+        <p align="left">
               In her restless solitude…
 every thought a storm, every fought, she weeps on her own throne.
 A goddess crowned in sorrow,
 yet pretending the weights upon her shoulders
 didn’t crush her bones.
-   <p align="center">
+   <p align="left">
 I became her sanctuary
 her light, her peace.
    <p align="center">
 "Such a heavy heart, my goddess…
 Why carry it alone?
 You hold storms meant for a thousand worlds.
-   <p align="center">
+    <p align="left">
 Let me be the gentle one,
 the song that steadies your heart
 as the world waits for you to breathe again."
-   <p align="center">
+     <p align="left">
 only I can calm this weeping goddess,
 with a song sung meant for only her alone.
-   <p align="center">
+    <p align="left">
 And so I sang
 Not to silence her storm
 but to give it somewhere safe to break.
-   <p align="center">
+   <p align="left">
 For she is the world’s strength…
 but I am the one who holds her
 when she finally lets herself be fragile.
-   <p align="center">
                  <p align="center">
                     NOT MY ART
         <p align="center">
