@@ -1,36 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
-        <p align="left">
-              In her restless solitude…
-every thought a storm, every fought, she weeps on her own throne.
-A goddess crowned in sorrow,
-yet pretending the weights upon her shoulders
-did not crush her bones.
-   <p align="left">
-I became her sanctuary
-her light, her peace.
-   <p align="left">
-"Such a heavy heart, my goddess…
-Why carry it alone?
-You hold storms meant for a thousand worlds.
-Let me be the gentle one,
-the song that steadies your heart
-as the world waits for you to breathe again."
-     <p align="left">
-Only I can tranquil this goddess,
-with a song sung meant for only her alone.
-    <p align="left">
-And so I sang
-Not to silence her storm
-but to give it somewhere safe to break.
-For she is the world’s strength…
-but I am the one who holds her
-when she finally lets herself be fragile.
-                 <p align="center">
-                    NOT MY ART
-        <p align="center">
-              <img width="251" height="465" alt="Screenshot_58" src="https://github.com/user-attachments/assets/4d8c1ddd-3dda-491f-9f32-89421634e21a" />
               <p align="center">
             Important lore : After arthia became the primacy of priscusmal she constantly need to get strong in order for her not to get KILLED like ilyde/Elias to replace the primacy the previous primacy must be killed like how arthia killed ilyde now shes the primacy, Every 200 years theres a judgment 'those who violated the law to face shame even it meant for death.'said to arthia lore, Arthia has to fight for her life to those who disobeyed the law. she is always driven by guilt and fear during fights but in her kidness she free those souls to be reborn and start a new life but even sometimes those souls come to violate the law again without having any memory of their previous. The cycle repeats again but arthia has a strong faith with those people, they can change even its means a thousand time. She constantly sacrificing herself on that belief (Ilyde used Xeno than fighting the sinners herself, Ilyde is a faud to fight)
       <p align="center">
