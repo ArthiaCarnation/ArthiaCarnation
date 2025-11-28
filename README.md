@@ -1,16 +1,26 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
-              <p align="center">
-            Important lore : After arthia became the primacy of priscusmal she constantly need to get strong in order for her not to get KILLED like ilyde/Elias to replace the primacy the previous primacy must be killed like how arthia killed ilyde now shes the primacy, Every 200 years theres a judgment 'those who violated the law to face shame even it meant for death.'said to arthia lore, Arthia has to fight for her life to those who disobeyed the law. she is always driven by guilt and fear during fights but in her kidness she free those souls to be reborn and start a new life but even sometimes those souls come to violate the law again without having any memory of their previous. The cycle repeats again but arthia has a strong faith with those people, they can change even its means a thousand time. She constantly sacrificing herself on that belief (Ilyde used Xeno than fighting the sinners herself, Ilyde is a faud to fight)
-      <p align="center">
-            <img width="800" alt="1000001018" src="https://github.com/user-attachments/assets/2fe35fb6-a882-4f9e-ab32-2730f89a54ff" />
+       <p align="center">
+    <img width="300" alt="1000031190" src="https://github.com/user-attachments/assets/54e642d6-f6cc-4595-a7d8-ea221211a5f8" />
+         <p align="center">
+<img width="800" alt="Screenshot_25" src="https://github.com/user-attachments/assets/729217fc-e453-4953-b2f2-1a6f3334e9c7" />
+                 <p align="center">
+                       ART BY @VDRLCT (M) on X !! 
+               <p align="center">
+                     Our Promise : Their Love and Devotion
+                       <p align="center">
+                         ────
+                           <p align="center">
+In her restless solitude… every storm, every fought, she weeps on her own throne. A goddess crowned in sorrow, yet pretending the weights upon her shoulders did not crush her bones.
+Yet even in her silence, she longs for someone who sees her beyond the title she carries.
+I became her sanctuary her light, her warmth , her peace.
+                                       <p align="center">
+"Such a heavy heart, my goddess… Why carry it alone? You hold storms meant for a thousand worlds. Let me be the gentle one, The song that steadies your heart as the world waits for you to breathe again."
+                                                   <p align="center">
+Only I can soothe her with a song crafted from my heart, sung meant for only her alone..
+She is the world’s strength…for I am the one who holds her when she finally lets herself be fragile.
         <p align="center">
-              You cant be for real.
-        <p align="center">
-              <img width="345" height="513" alt="Screenshot_57" src="https://github.com/user-attachments/assets/6b6ac1cd-7eec-4ae9-aaac-0e5abd0b85c4" />
-            <p align="center">
-<img width="374" height="237" alt="Screenshot_22" src="https://github.com/user-attachments/assets/57c8c532-fc95-4f57-84a3-d68439a5d828" /> 
                   <p align="center">
                      Venthia Anniversary   11 / 06 / 25
                   <p align="center">
@@ -32,32 +42,6 @@ Venti’s grin grew quiet but sincere She’d seen right through him
 “I could say I was following destiny" His eyes glimmered as he added softly “…and it led me right to you.”         
               <p align="center">
       <img width="800" alt="1000001346" src="https://github.com/user-attachments/assets/3e17f874-6a82-4c64-9a2c-32b618109139" />
-            <p align="center">
-                  <img width="400" alt="1000000126" src="https://github.com/user-attachments/assets/d8244d3b-e486-41e1-8bf6-264bee0f70c0" />
-       <p align="center">
-             <img width="487" height="262" alt="Screenshot_12" src="https://github.com/user-attachments/assets/026ac43a-2b22-4049-a0d5-351adfc7caba" />
-               <p align="center">
-                     Arthia everysingle day btw
-               <p align="center">
-                    <img width="533" height="296" alt="Screenshot_21" src="https://github.com/user-attachments/assets/e50b1511-5650-4d51-a3ce-d9aba895976d" />
-             <p align="center">
-             <img width="400" src="https://github.com/user-attachments/assets/ff839e6c-cae9-4a6b-bbf1-98cd53f30658" alt=![1000945232]>
-                   <p align="center">
-                         TYSMM VII OMGGG
-                   <p align="center">
-                         <img width="300" src="https://github.com/user-attachments/assets/c9d409f2-7f8f-4159-80b5-6cf5ed80cda8" alt=![1000945013]>
-           <p align="center">
-                 ART BY MARII YAYAYAY
-            <p align="center">
-                  <img width="451" height="456" alt="Screenshot_4" src="https://github.com/user-attachments/assets/b9978cbd-983f-411b-a001-ed45ab070ffd" />
-            <p align="center">
-      TYSM MIMIMI
-      <p align="center">
-      <img width="339" height="460" alt="Screenshot_5" src="https://github.com/user-attachments/assets/fc7830fc-89d1-4f3f-8bdf-d17f7c0b59e9" />
-      <p align="center">
-            <img width="400" src="https://github.com/user-attachments/assets/19907dd0-c6dc-46cf-8441-b1d2da48b41f" alt=![1000933306]>
-        <p align="center">
-          Art by HELI 🩷🩷
                  <p align="center">
                  ────୨ৎ────
   <p align="center">
@@ -112,6 +96,8 @@ Venti’s grin grew quiet but sincere She’d seen right through him
               <img width="400" src="https://github.com/user-attachments/assets/35432c07-b908-4346-8f3d-3e7e685ae1f0" alt=![1000935713]>
                                    <p align="center">
                      Venthia 1 by Xeneless Venthia 2 by Erhlia Venthia 3 by Latjaevel Venthia 4 by Kyuari Venthia 5 by Keira Venthia 6 AE RITH
+                                                         <p align="center">
+                                <img width="487" height="262" alt="Screenshot_12" src="https://github.com/user-attachments/assets/026ac43a-2b22-4049-a0d5-351adfc7caba" />
                         <p align="center">
        <img width="400" src="https://github.com/user-attachments/assets/2dd3439f-93c9-4b0a-bf51-b3f131af4f65" alt=![1000924342]>
                               <p align="center">
