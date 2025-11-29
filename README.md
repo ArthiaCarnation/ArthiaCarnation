@@ -3,6 +3,7 @@
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
        <p align="center">
     <img width="300" alt="1000031190" src="https://github.com/user-attachments/assets/54e642d6-f6cc-4595-a7d8-ea221211a5f8" />
+                    <p align="center">
              ────Arthia and Venti switch flowers on their rings to symbolize their love for one another. Arthia wears Venti’s Cecilia, and Venti wears Arthia’s Carnation. It symbolizes that their love is not just about themselves but about honoring and protecting one another. A sign of unity, devotion, and carrying a piece of each other’s soul.
                  <p align="center">
          <p align="center">
