@@ -3,6 +3,8 @@
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
       <p align="center">
             Just to know i dont appreciate being taken inspo of especially without my permission, Let me know first before doing anything or ill take it seriously.
+      <p align="center">
+     <img width="500" src="https://github.com/user-attachments/assets/856093c0-933d-4ba0-bb9e-31f6f905f070" alt=![1000001732]>
        <p align="center">
     <img width="300" alt="1000031190" src="https://github.com/user-attachments/assets/54e642d6-f6cc-4595-a7d8-ea221211a5f8" />
                     <p align="left">
