@@ -4,7 +4,10 @@
       <p align="center">
             Just to know i dont appreciate being taken inspo of especially without my permission, Let me know first before doing anything or ill take it seriously.
       <p align="center">
-     <img width="500" src="https://github.com/user-attachments/assets/856093c0-933d-4ba0-bb9e-31f6f905f070" alt=![1000001732]>
+            <img width="700" alt="1000001758" src="https://github.com/user-attachments/assets/590d7ec8-6125-4c0b-8dc1-6b8203464b27" />
+          <p align="center">
+                  <img width="200" src="https://github.com/user-attachments/assets/7b55d8c2-898c-4330-a1a7-124ee885332a" alt=![1000001716]>
+<img width="200" src="https://github.com/user-attachments/assets/2c9d23d9-e495-4444-b21c-694968a0350b" alt=![1000001755]>
        <p align="center">
     <img width="300" alt="1000031190" src="https://github.com/user-attachments/assets/54e642d6-f6cc-4595-a7d8-ea221211a5f8" />
                     <p align="left">
