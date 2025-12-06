@@ -2,7 +2,7 @@
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
       <p align="center">
-            Just to know i dont appreciate being taken inspo of especially without my permission, Let me know first before doing anything or ill take it seriously.
+FIXING HER DEISGNN
       <p align="center">
             <img width="700" alt="1000001758" src="https://github.com/user-attachments/assets/590d7ec8-6125-4c0b-8dc1-6b8203464b27" />
           <p align="center">
