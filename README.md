@@ -2,7 +2,7 @@
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
       <p align="center">
-FIXING HER DEISGNN
+Fixing her design my bro said she looks more like an hsr oc im cookedd
       <p align="center">
             <img width="700" alt="1000001758" src="https://github.com/user-attachments/assets/590d7ec8-6125-4c0b-8dc1-6b8203464b27" />
           <p align="center">
