@@ -1,10 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
-      <p align="center">
-Im debating between shes a hand user or a sword user cause her arm gauntlet works like wonderwoman grins
-      <p align="center">
-            <img width="700" alt="1000001758" src="https://github.com/user-attachments/assets/590d7ec8-6125-4c0b-8dc1-6b8203464b27" />
           <p align="center">
                   <img width="200" src="https://github.com/user-attachments/assets/7b55d8c2-898c-4330-a1a7-124ee885332a" alt=![1000001716]>
 <img width="200" src="https://github.com/user-attachments/assets/2c9d23d9-e495-4444-b21c-694968a0350b" alt=![1000001755]>
