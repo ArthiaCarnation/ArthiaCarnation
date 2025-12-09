@@ -6,6 +6,20 @@
           <p align="center">
                   <img width="200" src="https://github.com/user-attachments/assets/7b55d8c2-898c-4330-a1a7-124ee885332a" alt=![1000001716]>
 <img width="200" src="https://github.com/user-attachments/assets/2c9d23d9-e495-4444-b21c-694968a0350b" alt=![1000001755]>
+                <p align="center">
+                      i really love soft intimacy it feels like true romance and its shows how they love each other sm im crine ☹️
+                <p align="center">
+                     Our Promise : Only Us
+                       <p align="center">
+                         ────
+                <p align="center">
+                      I felt the world fall apart until only he remained.
+His breath brushed my skin like a prayer warm, steady, unhurried, as if touching me was something sacred.
+                      <p align="center">
+Every part of me softened.
+Every doubt, every burden, every storm inside me melted.
+                            <p align="center">
+There was no duty, no divinity… only the warmth of his hands and the gentle truth of being seen. In that fragile warmth I let myself fall into him completely.
        <p align="center">
     <img width="300" alt="1000031190" src="https://github.com/user-attachments/assets/54e642d6-f6cc-4595-a7d8-ea221211a5f8" />
                     <p align="left">
