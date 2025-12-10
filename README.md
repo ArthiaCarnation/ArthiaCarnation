@@ -9,7 +9,7 @@
                 <p align="center">
                       i really love soft intimacy it feels like true romance and its shows how they love each other sm im crine ☹️
                 <p align="center">
-                     Our Promise : Only Us
+                     Only Us From Our Scared Vows
                        <p align="center">
                          ────
                 <p align="center">
