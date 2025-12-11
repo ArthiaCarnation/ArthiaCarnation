@@ -7,7 +7,7 @@
                          ────
                 <p align="center">
                       I felt the world fall apart until only he remained.
-His breath brushed my skin like a prayer warm, steady, unhurried, as if touching me was something sacred.
+His breath brushed my skin like a prayer warm, steady, unhurried, as if touching me was the most sacred.
                       <p align="center">
 Every part of me softened.
 Every doubt, every burden, every storm inside me melted.
