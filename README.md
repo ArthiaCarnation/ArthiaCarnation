@@ -2,9 +2,9 @@
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
       <p align="center">
-            Ok
+            Arthia thinks
      <p align="center">
-           <img width="800" alt="1000001910" src="https://github.com/user-attachments/assets/da1c4750-0905-4f33-ae2e-8db3d6908e74" />
+           <img width="900" alt="1000001917" src="https://github.com/user-attachments/assets/3975d8d7-c489-4fd4-8b08-b87ad8a0c01c" />
                 <p align="center">
                      Only Us From Our Scared Vows
                        <p align="center">
