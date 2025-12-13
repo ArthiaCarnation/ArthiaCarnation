@@ -1,6 +1,10 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
+         <p align="center">
+               "MY MONEY MY RULES I DO WHAT I WANT" ahh chii 😂😂😂 im so cooked but holyyyy molyy the artist has a fineeeeeee art 
+       <p align="center">
+             <img width="600" alt="1000001922" src="https://github.com/user-attachments/assets/b31edc58-9702-4958-94b0-1f6be838793b" alt=![Messenger_creation_78227A33-B2E5-4A85-9977-13C5FE4BC986]>
       <p align="center">
             Arthia thinks
      <p align="center">
