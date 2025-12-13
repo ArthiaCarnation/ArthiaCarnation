@@ -4,7 +4,7 @@
       <p align="center">
             Arthia thinks
      <p align="center">
-         <img width="900" alt="1000001921" src="https://github.com/user-attachments/assets/2b30463c-9dbe-475d-b37e-a7b40001bebc" />
+         <img width="900" alt="1000001922" src="https://github.com/user-attachments/assets/ff4cea14-3580-4929-8177-3bdc1defb095" />
 <p align="center"
                      Only Us From Our Scared Vows
                        <p align="center">
