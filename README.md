@@ -1,6 +1,8 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
+        <p align="center">
+             The Primacy is the most hated and respected role in Priscusmal because it creates laws that even it must obey. Once a law is mad  no gods or immortals can refuse it. Refusing the Primacy is not meant out of fear they meant refusal is impossible, like refusing gravity or time. To break a law one would have to challenge the Primacy to a death duel(The one who disobeys it, as i have said many times on arthia's lore) yet it is respected for sacrificing its freedom to keep Priscusmal alive.
          <p align="center">
              IM GOING CRAZYYYYYYYYY PLEASE GET ME AWAY FROM  MY BANK ACC I HAVE AN ISSUE
        <p align="center">
