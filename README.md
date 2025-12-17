@@ -1,6 +1,8 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
+       <p align="center">
+             Bye ill update arthia lore rentry FULLY with some other background on christmas break its like im pulling up some research that doesnt even exist yeah fully What the three main roles meant primacy , Secondary , principle their rules ,orders what they do punishments how does one get into those roles. Division between the lands of Priscusmal what i means, description how dem creatures work during s2 to orgins, some name meanings and character roles are meant and any possible question that might fill in the gap of what else im missing Arthia's story is a full novel but this will be the summary of everything 
       <p align="center">
 Arthia was never raised to be the strongest god.
 Her father trained her to survive, not to dominate because from the moment of her creation, her destiny was already decided. Eutimia desired a queen who would endure, and so Arthia’s entire existence was planned around one purpose to rule Ethylena Valer as its crowned queen. Her life was not her own it was a promise made long before she could choose when Arthia ascended the throne, she fulfilled that destiny. Yet her fate did not remain still.
