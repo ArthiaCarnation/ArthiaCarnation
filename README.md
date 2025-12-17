@@ -8,10 +8,10 @@
        <p align="center">
              <img width="600" alt="1000001922" src="https://github.com/user-attachments/assets/b31edc58-9702-4958-94b0-1f6be838793b" alt=![Messenger_creation_78227A33-B2E5-4A85-9977-13C5FE4BC986]>
       <p align="center">
-            Arthia thinks
+            Arthia 
      <p align="center">
-         <img width="900" alt="1000001922" src="https://github.com/user-attachments/assets/ff4cea14-3580-4929-8177-3bdc1defb095" />
-<p align="center"
+         <img width="900" alt="1000001971" src="https://github.com/user-attachments/assets/c8041baf-9e30-4e5f-bd45-5ebcb65a88ca" />
+<p align="center">
                      Only Us From Our Scared Vows
                        <p align="center">
                          ────
