@@ -1,6 +1,21 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
+      <p align="center">
+Arthia was never raised to be the strongest god.
+Her father trained her to survive, not to dominate because from the moment of her creation, her destiny was already decided. Eutimia desired a queen who would endure, and so Arthia’s entire existence was planned around one purpose to rule Ethylena Valer as its crowned queen. Her life was not her own it was a promise made long before she could choose when Arthia ascended the throne, she fulfilled that destiny. Yet her fate did not remain still.
+ <p align="center">
+With Eutimia gone, the Primordial Ilyde Hidden as Elias set her plans into motion. Arthia, as one of Eutimia’s descendents and inheritors of her power, became the final symbol of Eutimia’s existence. Ilyde did not seek to kill Arthia outright. Instead she chose a far crueler revenge to erase Arthia from the world’s memory, ensuring that Eutimia herself would be forgotten through her.
+ <p align="center">
+After Ilyde made Arthia violated a Primacy law by killing another god without judgement (Tori), Ilyde manipulated the judgment. Arthia was punished not with death but with oblivion. The world forgot Arthia Valdern, her name, her presence, her divinity yet her creations remained What she had shaped endured, even as all memory of her vanished, among those creations were her children.
+ <p align="center">
+Seven was the first to sense the reality While others lived unaware, he discovered scattered fragments of truth echoes of a mother the world insisted had never existed. from those fragments, one purpose was born to seek justice not only for Arthia, but for the unfairness and crime of erasing her existence. with Arthia’s children, Seven sought to restore what the world had been forced to forget.
+ <p align="center">
+Arthia returned to the place of judgment. She refused to fight Xeno and instead demanded to face Ilyde herself (Acording to Primacy law only those of Primordial blood may hold the role, and the Primacy must fight personally it cannot rely on others) Ilyde fearing replacement and death, violated this law. She hid behind another(Xeno) and concealed her identity, presenting herself only as the Primordial Ilyde rather than the god Elias she truly was.
+ <p align="center">
+Arthia did not turn away. She faced Ilyde directly and killed her. In that moment, Arthia did not seize power The Primacy spirit claimed her. She became what fate had slowly and painfully shaped her into, Arthia ascended as Primacy, knowing that its power was not a gift, but a burden carried foreveruntil she is killed or replaced by another. She became strong not for glory, but to survive, to balance her own existence, and to remain in a world where she could still protect and see those she loves, she feared not to exist.
+ <p align="center">
+       Hold on i cooked that one sooo Why is Arthia not like a Mary sue?  Arthia's story does not protect her or reward her or being that "overly strong from the start" she is severely punished instead of being forgiven the world forgets her entirely, erasing her identity and legacy. even when she later becomes Primacy, this power is not a reward or wish fulfillment, but a heavy burden that binds her to strict laws she cannot escape and costs her peace and freedom
         <p align="center">
              The Primacy is the most hated and respected role in Priscusmal because it creates laws that even it must obey. Once a law is mad  no gods or immortals can refuse it. Refusing the Primacy is not meant out of fear they meant refusal is impossible, like refusing gravity or time. To break a law one would have to challenge the Primacy to a death duel(The one who disobeys it, as i have said many times on arthia's lore) yet it is respected for sacrificing its freedom to keep Priscusmal alive.
          <p align="center">
