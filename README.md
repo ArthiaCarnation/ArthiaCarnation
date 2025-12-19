@@ -2,6 +2,9 @@
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
       <p align="center">
+            <p align="center">
+         <img width="300" src="https://github.com/user-attachments/assets/bab50cbc-49c8-4c14-b4e2-7129243d6aaa" Alt=![1000954695]>
+      <p align="center">
 Arthia was never raised to be the strongest god.
 Her father trained her to survive, not to dominate because from the moment of her creation, her destiny was already decided. Eutimia desired a queen who would endure, and so Arthia’s entire existence was planned around one purpose to rule Ethylena Valer as its crowned queen. Her life was not her own it was a promise made long before she could choose when Arthia ascended the throne, she fulfilled that destiny. Yet her fate did not remain still.
  <p align="center">
@@ -23,7 +26,7 @@ Arthia did not turn away. She faced Ilyde directly and killed her. In that momen
        <p align="center">
              <img width="600" alt="1000001922" src="https://github.com/user-attachments/assets/b31edc58-9702-4958-94b0-1f6be838793b" alt=![Messenger_creation_78227A33-B2E5-4A85-9977-13C5FE4BC986]>
       <p align="center">
-            Arthia 
+            Primacy Arthia 
      <p align="center">
          <img width="900" alt="1000001971" src="https://github.com/user-attachments/assets/c8041baf-9e30-4e5f-bd45-5ebcb65a88ca" />
 <p align="center">
