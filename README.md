@@ -4,7 +4,7 @@
       <p align="center">
             <img width="500" alt="1000001988" src="https://github.com/user-attachments/assets/4bf12e7e-126e-4795-ba44-fd6dc6bc4db7" />
 <p align="center">
-      ART by @Mmags Sy (FB)
+      ART BY @Mmags Sy (FB)
       <p align="center">
                      Only Us From Our Scared Vows
                        <p align="center">
