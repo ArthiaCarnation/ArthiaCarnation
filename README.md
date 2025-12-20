@@ -18,7 +18,7 @@ Every doubt, every burden, every storm inside me melted.
                             <p align="center">
 There was no duty, no divinity… only the warmth of his hands and the gentle truth of being seen. In that fragile warmth I let myself fall into him completely.
       <p align="center">
-            Primacy Arthia, I DONT APPRECIATE being taken inspo of 
+           Imagine wearing this everyday gulps
      <p align="center">
          <img width="900" alt="1000001971" src="https://github.com/user-attachments/assets/c8041baf-9e30-4e5f-bd45-5ebcb65a88ca" />
        <p align="center">
