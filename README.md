@@ -2,6 +2,22 @@
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
       <p align="center">
+            <img width="500" alt="1000001988" src="https://github.com/user-attachments/assets/4bf12e7e-126e-4795-ba44-fd6dc6bc4db7" />
+<p align="center">
+      ART by @Mmags Sy (FB)
+      <p align="center">
+                     Only Us From Our Scared Vows
+                       <p align="center">
+                         ────
+                <p align="center">
+                      I felt the world fall apart until only he remained.
+His breath brushed my skin like a prayer warm, steady, unhurried, as if touching me was the most sacred.
+                      <p align="center">
+Every part of me softened.
+Every doubt, every burden, every storm inside me melted.
+                            <p align="center">
+There was no duty, no divinity… only the warmth of his hands and the gentle truth of being seen. In that fragile warmth I let myself fall into him completely.
+      <p align="center">
             <p align="center">
          <img width="300" src="https://github.com/user-attachments/assets/bab50cbc-49c8-4c14-b4e2-7129243d6aaa" Alt=![1000954695]>
       <p align="center">
@@ -21,26 +37,10 @@ Arthia did not turn away. She faced Ilyde directly and killed her. In that momen
        Why is Arthia not like a Mary sue?  Arthia's story does not protect her or reward her or being that "overly strong from the start" she is severely punished instead of being forgiven the world forgets her entirely, erasing her identity and legacy. even when she later becomes Primacy, this power is not a reward or wish fulfillment, but a heavy burden that binds her to strict laws she cannot escape and costs her peace and freedom
         <p align="center">
              The Primacy is the most hated and respected role in Priscusmal because it creates laws that even it must obey. Once a law is mad  no gods or immortals can refuse it. Refusing the Primacy is not meant out of fear they meant refusal is impossible, like refusing gravity or time. To break a law one would have to challenge the Primacy to a death duel(The one who disobeys it, as i have said many times on arthia's lore) yet it is respected for sacrificing its freedom to keep Priscusmal alive.
-         <p align="center">
-             IM GOING CRAZYYYYYYYYY PLEASE GET ME AWAY FROM  MY BANK ACC I HAVE AN ISSUE
-       <p align="center">
-             <img width="600" alt="1000001922" src="https://github.com/user-attachments/assets/b31edc58-9702-4958-94b0-1f6be838793b" alt=![Messenger_creation_78227A33-B2E5-4A85-9977-13C5FE4BC986]>
       <p align="center">
             Primacy Arthia, I DONT APPRECIATE being taken inspo of 
      <p align="center">
          <img width="900" alt="1000001971" src="https://github.com/user-attachments/assets/c8041baf-9e30-4e5f-bd45-5ebcb65a88ca" />
-<p align="center">
-                     Only Us From Our Scared Vows
-                       <p align="center">
-                         ────
-                <p align="center">
-                      I felt the world fall apart until only he remained.
-His breath brushed my skin like a prayer warm, steady, unhurried, as if touching me was the most sacred.
-                      <p align="center">
-Every part of me softened.
-Every doubt, every burden, every storm inside me melted.
-                            <p align="center">
-There was no duty, no divinity… only the warmth of his hands and the gentle truth of being seen. In that fragile warmth I let myself fall into him completely.
        <p align="center">
     <img width="300" alt="1000031190" src="https://github.com/user-attachments/assets/54e642d6-f6cc-4595-a7d8-ea221211a5f8" />
                     <p align="left">
