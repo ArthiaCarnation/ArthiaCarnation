@@ -1,30 +1,10 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
-      <p align="center">
-            <img width="500" alt="1000001989" src="https://github.com/user-attachments/assets/2e5749ac-ed9c-439a-8a85-f7328ca630af" />
-            <p align="center">
-      ART BY @Mmags Sy (FB)
-      <p align="center">
-                     Only Us From Our Scared Vows
-                       <p align="center">
-                         ────
-                <p align="center">
-                      I felt the world fall apart until only he remained.
-His breath brushed my skin like a prayer warm, steady, unhurried, as if touching me was the most sacred.
-                      <p align="center">
-Every part of me softened.
-Every doubt, every burden, every storm inside me melted.
-                            <p align="center">
-There was no duty, no divinity… only the warmth of his hands and the gentle truth of being seen. In that fragile warmth I let myself fall into him completely.
-      <p align="center">
-           Imagine wearing this everyday gulps
-     <p align="center">
-         <img width="900" alt="1000001971" src="https://github.com/user-attachments/assets/c8041baf-9e30-4e5f-bd45-5ebcb65a88ca" />
        <p align="center">
     <img width="300" alt="1000031190" src="https://github.com/user-attachments/assets/54e642d6-f6cc-4595-a7d8-ea221211a5f8" />
                     <p align="left">
-             Arthia and Venti switch flowers on their rings to symbolize their love for one another. Arthia wears Venti’s Cecilia, and Venti wears Arthia’s Carnation. It symbolizes that their love is not just about themselves but about honoring and protecting one another. A sign of unity, devotion, and carrying a piece of each other’s soul.
+            — Arthia and Venti switch flowers on their rings to symbolize their love for one another. Arthia wears Venti’s Cecilia, and Venti wears Arthia’s Carnation. It symbolizes that their love is not just about themselves but about honoring and protecting one another. A sign of unity, devotion, and carrying a piece of each other’s soul.
                  <p align="center">
          <p align="center">
 <img width="800" alt="Screenshot_25" src="https://github.com/user-attachments/assets/729217fc-e453-4953-b2f2-1a6f3334e9c7" />
@@ -43,6 +23,26 @@ I became her sanctuary her light, her warmth , her peace.
                                                    <p align="center">
 Only I can soothe her with a song crafted from my heart, sung meant for only her alone..
 She is the world’s strength…for I am the one who holds her when she finally lets herself be fragile.
+   <p align="center">
+            <img width="500" alt="1000001989" src="https://github.com/user-attachments/assets/2e5749ac-ed9c-439a-8a85-f7328ca630af" />
+            <p align="center">
+      ART BY @Mmags Sy (FB)
+      <p align="center">
+                     Only Us From Our Scared Vows
+                       <p align="center">
+                         ────
+                <p align="center">
+                      I felt the world fall apart until only he remained.
+His breath brushed my skin like a prayer warm, steady, unhurried, as if touching me was the most sacred.
+                      <p align="center">
+Every part of me softened.
+Every doubt, every burden, every storm inside me melted.
+                            <p align="center">
+There was no duty, no divinity… only the warmth of his hands and the gentle truth of being seen. In that fragile warmth I let myself fall into him completely. 
+                                    <p align="center">
+           Imagine wearing this everyday gulps
+     <p align="center">
+         <img width="900" alt="1000001971" src="https://github.com/user-attachments/assets/c8041baf-9e30-4e5f-bd45-5ebcb65a88ca" />
         <p align="center">
                   <p align="center">
                      Venthia Anniversary   11 / 06 / 25
