@@ -2,7 +2,7 @@
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
        <p align="center">
-             B2 Our Promise: The Thorn in between (Final Chapter Book Cover)
+             Book2 Our Promise: The Thorn in between (Final Chapter Book Cover)
        <p align="center">
     <img width="300" alt="1000031190" src="https://github.com/user-attachments/assets/54e642d6-f6cc-4595-a7d8-ea221211a5f8" />
                     <p align="left">
