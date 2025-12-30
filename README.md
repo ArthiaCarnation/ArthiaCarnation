@@ -1,6 +1,11 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
+      <p align="center">
+            His Drunken Gaze 
+      <p align="center">
+            <img width="400" src="https://github.com/user-attachments/assets/3b865658-4962-4f36-8c6a-52b56fa09cc2" 
+            alt=![1000002072]>
        <p align="center">
              Book2 Our Promise: The Thorn in between (Final Chapter Book Cover)
        <p align="center">
