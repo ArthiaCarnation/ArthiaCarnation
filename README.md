@@ -4,8 +4,7 @@
       <p align="center">
             His Drunken Gaze 
       <p align="center">
-            <img width="400" src="https://github.com/user-attachments/assets/3b865658-4962-4f36-8c6a-52b56fa09cc2" 
-            alt=![1000002072]>
+            <img width="400" src="https://github.com/user-attachments/assets/76ce8868-9140-4e34-bc77-c356cbd78150"  alt=![1000002073]>
        <p align="center">
              Book2 Our Promise: The Thorn in between (Final Chapter Book Cover)
        <p align="center">
