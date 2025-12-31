@@ -4,7 +4,7 @@
       <p align="center">
        A little tipsy 
       <p align="center">
-            <img width="700" src="https://github.com/user-attachments/assets/76ce8868-9140-4e34-bc77-c356cbd78150"  alt=![1000002073]>
+            <img width="600" src="https://github.com/user-attachments/assets/76ce8868-9140-4e34-bc77-c356cbd78150"  alt=![1000002073]>
        <p align="center">
              Book2 Our Promise: The Thorn in between (Final Chapter Book Cover)
        <p align="center">
