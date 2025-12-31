@@ -2,7 +2,7 @@
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
       <p align="center">
-            His Drunken Gaze 
+       A little tipsy 
       <p align="center">
             <img width="400" src="https://github.com/user-attachments/assets/76ce8868-9140-4e34-bc77-c356cbd78150"  alt=![1000002073]>
        <p align="center">
