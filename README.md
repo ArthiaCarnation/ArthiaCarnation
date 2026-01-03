@@ -14,8 +14,6 @@
                       <p align="Right">
                             "Then, let it be a thousand more."
       <p align="center">
-            <img width="600" src="https://github.com/user-attachments/assets/c4bd955c-0fe7-45f7-bd06-49629b4fb908" alt=![1000002090]>
-      <p align="center">
        A little tipsy 
       <p align="center">
             <img width="600" src="https://github.com/user-attachments/assets/76ce8868-9140-4e34-bc77-c356cbd78150"  alt=![1000002073]>
