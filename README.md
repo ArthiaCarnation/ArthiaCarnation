@@ -1,8 +1,18 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
+         <p align="center">
+       okay i have a lot of things to fix on this..
       <p align="center">
-            Finding ways to kiss you. ( okay i have a lot of things to fix on this..)
+            Finding ways to kiss you.
+               <p align="center">
+            ────
+                  <p align="Right">
+            "Have i ever told you, you look so beautiful?.."
+                              <p align="left">
+            "A Thousand Times Venti."
+                      <p align="Right">
+                            "Then, let it be a thousand more."
       <p align="center">
             <img width="600" src="https://github.com/user-attachments/assets/c4bd955c-0fe7-45f7-bd06-49629b4fb908" alt=![1000002090]>
       <p align="center">
