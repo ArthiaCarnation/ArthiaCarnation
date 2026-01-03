@@ -4,7 +4,7 @@
       <p align="center">
             I HATE THEM SMM
       <p align="center">
-            <img width="600" src="https://github.com/user-attachments/assets/db6759c1-31bd-44ad-a183-4ff93d39defc" alt= ![1000002095]>
+            <img width="800" src="https://github.com/user-attachments/assets/db6759c1-31bd-44ad-a183-4ff93d39defc" alt= ![1000002095]>
          <p align="center">
        okay i have a lot of things to fix on this..
       <p align="center">
