@@ -2,11 +2,9 @@
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
       <p align="center">
-            I HATE THEM SMM
+         Random thought if ever i were in their universe im deadass running away from them 😂😂
       <p align="center">
             <img width="800" src="https://github.com/user-attachments/assets/db6759c1-31bd-44ad-a183-4ff93d39defc" alt= ![1000002095]>
-         <p align="center">
-       okay i have a lot of things to fix on this..
       <p align="center">
             Finding ways to kiss you.
                <p align="center">
