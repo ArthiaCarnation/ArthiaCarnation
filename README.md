@@ -2,7 +2,7 @@
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
       <p align="center">
-            Finding ways to kiss you.
+            Finding ways to kiss you. ( okay i have a lot of things to fix on this..)
       <p align="center">
             <img width="600" src="https://github.com/user-attachments/assets/c4bd955c-0fe7-45f7-bd06-49629b4fb908" alt=![1000002090]>
       <p align="center">
