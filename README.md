@@ -8,7 +8,7 @@
                <p align="center">
             ────
                   <p align="left">
-         Do you think we still be together in another life?
+      Do you think we’ll still be together in another life?
                               <p align="Right">
      Arthia, This is the other life.
                              <p align="center">
