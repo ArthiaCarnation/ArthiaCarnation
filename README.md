@@ -3,13 +3,15 @@
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
   <p align="center">
   Viviana x Nameless Bard (LoveArrow)
+          <p align="center">
+                Maiden x Rebel
                <p align="center">
             ────
                   <p align="left">
          Do you think we still be together in another life?
                               <p align="Right">
      Arthia, This is the other life.
-                             <p align="Right">
+                             <p align="center">
                                    GRRRR I CANT WAITTT
       <p align="center">
             <img width="800" src="https://github.com/user-attachments/assets/8e96036f-919e-487a-9389-75dc995f75e1" alt![1000002113]>
