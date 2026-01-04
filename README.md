@@ -11,9 +11,9 @@
                <p align="center">
             ────
                   <p align="left">
-      Do you think we’ll still be together in another life?
+  If this is our last night , will you sing to me one last time?
                               <p align="Right">
-     Arthia, This is the other life.
+    I’ll sing of you, Of the girl who taught a rebel to believe in the morning sky even beyond the storm barrier.
       <p align="center">
             <img width="800" src="https://github.com/user-attachments/assets/8e96036f-919e-487a-9389-75dc995f75e1" alt![1000002113]>
       <p align="center">
