@@ -1,6 +1,9 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
 <p align="center">
       https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
+              <p align="center">
+<img width="360" src="https://github.com/user-attachments/assets/90b2e27c-bce5-4b14-abe1-62fcfa5f4713" alt=![tumblr_e094526814a51d4eafcdb9d060fe8f78_10f5a22b_640]>
+<img width="370" src="https://github.com/user-attachments/assets/d103ec07-d782-47da-b1b6-e6436b450669" alt=![nameless-bard]> 
   <p align="center">
   Viviana x Nameless Bard (LoveArrow)
           <p align="center">
@@ -11,8 +14,6 @@
       Do you think we’ll still be together in another life?
                               <p align="Right">
      Arthia, This is the other life.
-                             <p align="center">
-                                   GRRRR I CANT WAITTT
       <p align="center">
             <img width="800" src="https://github.com/user-attachments/assets/8e96036f-919e-487a-9389-75dc995f75e1" alt![1000002113]>
       <p align="center">
