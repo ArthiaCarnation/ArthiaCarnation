@@ -5,15 +5,19 @@
 <img width="360" src="https://github.com/user-attachments/assets/90b2e27c-bce5-4b14-abe1-62fcfa5f4713" alt=![tumblr_e094526814a51d4eafcdb9d060fe8f78_10f5a22b_640]>
 <img width="370" src="https://github.com/user-attachments/assets/d103ec07-d782-47da-b1b6-e6436b450669" alt=![nameless-bard]> 
   <p align="center">
-  Viviana x Nameless Bard (LoveArrow)
-          <p align="center">
-                Maiden x Rebel
-               <p align="center">
-            ────
-                  <p align="left">
-  If this is our last night , will you sing to me one last time?
-                              <p align="Right">
-    I’ll sing of you, Of the girl who taught a rebel to believe in the morning sky even beyond the storm barrier.
+────꒰ა ♡ ໒꒱────
+  <p align="center">
+ʚ 💌🌺 x 🏹🕊️ ɞ
+  <p align="center">
+𝓜𝙖𝙞𝙙𝙚𝙣 ✗ 𝓡𝙚𝙗𝙚𝙡 │ 𝓥𝘪𝘷𝘪𝘢𝘯𝘢 ✗ 𝓝𝘢𝘮𝘦𝘭𝘦𝘴𝘴 𝗕𝘢𝘳𝘥  ╭ 𝐻𝒾𝓂𝓂𝑒𝓁 ╯
+  <p align="center">
+𝙻𝚘𝚟𝚎𝙰𝚛𝚛𝚘𝚠 
+<p align="center">
+   Lowkey ─ NIKI ノ I hear a symphony ─ CODY FRY ノ About you ─ The 1975
+<p align="left">
+ " If this is our last night , will you sing to me one last time? "
+<p align="Right">
+" I’ll sing of you, Of the girl who taught a rebel to believe in the morning sky even beyond the storm barrier. "
       <p align="center">
             <img width="800" src="https://github.com/user-attachments/assets/8e96036f-919e-487a-9389-75dc995f75e1" alt![1000002113]>
       <p align="center">
@@ -101,7 +105,7 @@ Venti’s grin grew quiet but sincere She’d seen right through him
                  <p align="center">
                  ────୨ৎ────
   <p align="center">
-ʚ🌸💍 x 🍃🍎ɞ
+ʚ 🌸💍 x 🍃🍎 ɞ
     <p align="center">
 𝐂𝐚𝐫𝐧𝐚𝐭𝐢𝐨𝐧 𝐱 𝐂𝐞𝐜𝐢𝐥𝐢𝐚 / 𝐀𝐫𝐭𝐡𝐢𝐚 𝐱 𝐕𝐞𝐧𝐭𝐢 
       <p align="center">
