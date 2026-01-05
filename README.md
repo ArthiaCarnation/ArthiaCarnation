@@ -32,12 +32,6 @@
             "A Thousand Times Venti."
                       <p align="Right">
                             "Then, let it be a thousand more."
-      <p align="center">
-       A little tipsy 
-      <p align="center">
-            <img width="600" src="https://github.com/user-attachments/assets/76ce8868-9140-4e34-bc77-c356cbd78150"  alt=![1000002073]>
-       <p align="center">
-             Book2 Our Promise: The Thorn in between (Final Chapter Book Cover)
        <p align="center">
     <img width="300" alt="1000031190" src="https://github.com/user-attachments/assets/54e642d6-f6cc-4595-a7d8-ea221211a5f8" />
                     <p align="left">
