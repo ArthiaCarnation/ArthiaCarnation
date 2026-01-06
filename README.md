@@ -1,15 +1,19 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=ffbcb4&style=flat-square&label=OurPromise)
-<p align="center">
-      https://rentry.co/HevenCallout / https://rentry.co/Chiisboundaries
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=fdcddf&style=flat-square&label=OurPromise)
+<p align="center"> 
+        <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ArthiasLore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
+ <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  
               <p align="center">
 <img width="360" src="https://github.com/user-attachments/assets/90b2e27c-bce5-4b14-abe1-62fcfa5f4713" alt=![tumblr_e094526814a51d4eafcdb9d060fe8f78_10f5a22b_640]>
 <img width="370" src="https://github.com/user-attachments/assets/d103ec07-d782-47da-b1b6-e6436b450669" alt=![nameless-bard]> 
+                       <p align="center">
+         <img width="200" src="https://github.com/user-attachments/assets/f2d83299-a62b-4c1c-bdb9-b1c96452e1e2" alt=![pony-town-NamelessBard Lover INT !! 🎸🌺-sit-blinking-padded-toy365-4x]>
+<img width="185" src="https://github.com/user-attachments/assets/cd6caf44-ff9d-425b-9345-19e5d89fb11c" alt=![pony-town-NamelessBard x Viviana 🎸🌺-sit-blinking-padded-4x]>
   <p align="center">
 ────꒰ა ♡ ໒꒱────
   <p align="center">
 ʚ 💌🌺 x 🏹🕊️ ɞ
   <p align="center">
-𝓜𝙖𝙞𝙙𝙚𝙣 ✗ 𝓡𝙚𝙗𝙚𝙡 │ 𝓥𝘪𝘷𝘪𝘢𝘯𝘢 ✗ 𝓝𝘢𝘮𝘦𝘭𝘦𝘴𝘴 𝓑𝘢𝘳𝘥  ╭ 𝐻𝒾𝓂𝓂𝑒𝓁 ╯
+𝙈𝚊𝚒𝚍𝚎𝚗 ✗ 𝙍𝚎𝚋𝚎𝚕 │ 𝓥𝘪𝘷𝘪𝘢𝘯𝘢 ✗ 𝓝𝘢𝘮𝘦𝘭𝘦𝘴𝘴 𝓑𝘢𝘳𝘥  ╭ 𝘏𝘪𝘮𝘮𝘦𝘭 ╯
   <p align="center">
 𝙻𝚘𝚟𝚎𝙰𝚛𝚛𝚘𝚠 
 <p align="center">
@@ -18,8 +22,6 @@
  " If this is our last night , will you sing to me one last time? "
 <p align="Right">
 " I’ll sing of you, Of the girl who taught a rebel to believe in the morning sky even beyond the storm barrier. "
-      <p align="center">
-            <img width="800" src="https://github.com/user-attachments/assets/8e96036f-919e-487a-9389-75dc995f75e1" alt![1000002113]>
       <p align="center">
             <img width="800" src="https://github.com/user-attachments/assets/db6759c1-31bd-44ad-a183-4ff93d39defc" alt= ![1000002095]>
       <p align="center">
@@ -69,11 +71,7 @@ His breath brushed my skin like a prayer warm, steady, unhurried, as if touching
 Every part of me softened.
 Every doubt, every burden, every storm inside me melted.
                             <p align="center">
-There was no duty, no divinity… only the warmth of his hands and the gentle truth of being seen. In that fragile warmth I let myself fall into him completely. 
-                                    <p align="center">
-           Imagine wearing this everyday gulps
-     <p align="center">
-         <img width="900" alt="1000001971" src="https://github.com/user-attachments/assets/c8041baf-9e30-4e5f-bd45-5ebcb65a88ca" />
+There was no duty, no divinity… only the warmth of his hands and the gentle truth of being seen. In that fragile warmth I let myself fall into him completely.                         
         <p align="center">
                   <p align="center">
                      Venthia Anniversary   11 / 06 / 25
@@ -96,16 +94,16 @@ Venti’s grin grew quiet but sincere She’d seen right through him
 “I could say I was following destiny" His eyes glimmered as he added softly “…and it led me right to you.”         
               <p align="center">
       <img width="800" alt="1000001346" src="https://github.com/user-attachments/assets/3e17f874-6a82-4c64-9a2c-32b618109139" />
-                 <p align="center">
-                 ────୨ৎ────
+               <p align="center">
+────꒰ ᧔ෆ᧓ ꒱────
   <p align="center">
-ʚ 🌸💍 x 🍃🍎 ɞ
-    <p align="center">
-𝐂𝐚𝐫𝐧𝐚𝐭𝐢𝐨𝐧 𝐱 𝐂𝐞𝐜𝐢𝐥𝐢𝐚 / 𝐀𝐫𝐭𝐡𝐢𝐚 𝐱 𝐕𝐞𝐧𝐭𝐢 
-      <p align="center">
-𝗩𝗲𝗻𝘁𝗵𝗶𝗮
-        <p align="center">
-          WindLotus / AppleBlossom / PromiseWind
+ʚ 💍🌸 x 🍃🍎ɞ
+  <p align="center">
+ 𝙒𝘢𝘳𝘳𝘪𝘰𝘳 ✗ 𝘽𝘢𝘳𝘥 │ 𝓐𝘳𝘵𝘩𝘪𝘢 ✗ 𝓥𝘦𝘯𝘵𝘪  ╭ 𝘉𝘢𝘳𝘣𝘢𝘵𝘰𝘴 ╯
+  <p align="center">
+𝙻𝚘𝚝𝚞𝚜𝚆𝚒𝚗𝚍 ノ 𝙰𝚙𝚙𝚕𝚎𝙱𝚕𝚘𝚜𝚜𝚘𝚖
+         <p align="center">
+                <a href="https://open.spotify.com/playlist/5zwJNv1uIQBtxEjyAF0Pcv?si=DzjieVg3TPulUaWFgKTX3Q" target="[M]"<strong> 𝘝𝘌𝘕𝘛𝘏𝘐𝘈 </strong></a> 
               <p align="center">
             <img width="100" src="https://github.com/user-attachments/assets/31a49874-7fce-4873-8e61-8fa1e7408672" alt=![1000923423]>
 <p align="center">
