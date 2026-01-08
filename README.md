@@ -25,7 +25,7 @@
 <p align="Right">
 " I’ll sing of you, Of the girl who taught a rebel to believe in the morning sky even beyond the storm barrier. "
         <p align="center">
-                <img width="900" alt="1000002166" src="https://github.com/user-attachments/assets/ea2eb975-5dda-4ba5-9e00-70717fc9778e">
+                <img width="800" alt="1000002168" src="https://github.com/user-attachments/assets/d97b3434-91c5-4ef8-99e8-486b6527ee98" />
       <p align="center">
             <img width="800" src="https://github.com/user-attachments/assets/db6759c1-31bd-44ad-a183-4ff93d39defc" alt= ![1000002095]>
       <p align="center">
