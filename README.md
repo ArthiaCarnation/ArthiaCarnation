@@ -25,6 +25,8 @@
 <p align="Right">
 " I’ll sing of you, Of the girl who taught a rebel to believe in the morning sky even beyond the storm barrier. "
         <p align="center">
+                guess whos just a girl and just THAT GIRL im crine
+                   <p align="center">
                 <img width="900" alt="1000002175" src="https://github.com/user-attachments/assets/12516706-25f6-4693-b343-1777cfcd3c9d" />
                 <p align="center">
                         <img width="900" alt="1000002137" src="https://github.com/user-attachments/assets/ec727b33-0646-49e2-b676-f65e792bb29a" />
