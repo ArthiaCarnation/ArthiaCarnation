@@ -25,7 +25,7 @@
 <p align="Right">
 " I’ll sing of you, Of the girl who taught a rebel to believe in the morning sky even beyond the storm barrier. "
         <p align="center">
-                guess whos just a girl and just THAT GIRL im crine
+                guess whos just a girl and just THAT GIRL im crine Viviana and Arthia shared a single body before Arthia took over which is why Viviana has the same hairstyle. Viviana's hair was supposed to be all black, but after meeting Venti, she began to have pink ends because she was becoming Arthia. It was as if meeting Venti triggered an Arthia soul within Viviana. After becoming the primacy, Arthia separated her soul from her body because they were eventually still different souls.
                    <p align="center">
                 <img width="900" alt="1000002175" src="https://github.com/user-attachments/assets/12516706-25f6-4693-b343-1777cfcd3c9d" />
                 <p align="center">
