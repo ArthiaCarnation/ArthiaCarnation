@@ -27,8 +27,8 @@
         <p align="center">
                 guess whos just a girl and just THAT GIRL im crine Viviana and Arthia shared a single body before Arthia took over which is why Viviana has the same hairstyle. Viviana's hair was supposed to be all black, but after meeting Venti, she began to have pink ends because she was becoming Arthia. It was as if meeting Venti triggered an Arthia soul within Viviana. After becoming the primacy, Arthia separated her soul from her body because they were eventually still different souls.
                    <p align="center">
-                <img width="900" alt="1000002175" src="https://github.com/user-attachments/assets/12516706-25f6-4693-b343-1777cfcd3c9d" />
-                <p align="center">
+                <img width="900" alt="1000002177" src="https://github.com/user-attachments/assets/f0a0b81f-2d0b-425d-ab77-176ab6b0d9cb"/>
+              <p align="center">
                         <img width="900" alt="1000002137" src="https://github.com/user-attachments/assets/ec727b33-0646-49e2-b676-f65e792bb29a" />
       <p align="center">
             <img width="800" src="https://github.com/user-attachments/assets/db6759c1-31bd-44ad-a183-4ff93d39defc" alt= ![1000002095]>
