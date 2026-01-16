@@ -3,6 +3,14 @@
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ArthiasLore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://x.com/arthiapromise"" target="[M]"<strong> 𝗫 </strong></a>  
+         <p align="center">
+                 IM SO FRICKIN INLOVE WITH THEM OMGGG
+         <p align="center">
+                 <img width="768" height="1024" alt="1000002352" src="https://github.com/user-attachments/assets/8e130acf-bdb7-4d17-a71f-bd9308741697" />
+                 <p align="center">
+                         amd the venthia ig...
+                 <p align="center">
+                         <img width="768" src="https://github.com/user-attachments/assets/7227ee78-82a6-4aef-b81c-ebcdd63d4957" alt=![1000002354]>
         <p align="center">
                 <img width="300" alt="1000002181" src="https://github.com/user-attachments/assets/d75dbd22-9ca7-4af8-8451-f8bd9a44e427" /> <img width="300" alt="1000002160" src="https://github.com/user-attachments/assets/0117e6cf-8138-4177-8aff-6156b7976db3" />
               <p align="center">
