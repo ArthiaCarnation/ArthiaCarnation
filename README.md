@@ -4,7 +4,7 @@
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://x.com/arthiapromise"" target="[M]"<strong> 𝗫 </strong></a>  
          <p align="center">
-                 IM SO FRICKIN INLOVE WITH THEM OMGGG
+                 IM SO FRICKIN INLOVE WITH THEM OMGGG ART BY SERENDIPITY
          <p align="center">
                  <img width="500" alt="1000002352" src="https://github.com/user-attachments/assets/8e130acf-bdb7-4d17-a71f-bd9308741697" />
                  <p align="center">
