@@ -2,7 +2,11 @@
 <p align="center"> 
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ArthiasLore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
-      <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://x.com/arthiapromise"" target="[M]"<strong> 𝗫 </strong></a>  
+      <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://x.com/arthiapromise"" target="[M]"<strong> 𝗫 </strong></a> 
+                  <p align="center">
+                          Letting this haunt me
+           <p align="center">
+                       <img width="400" src="https://github.com/user-attachments/assets/73e74bd4-e4d5-4380-af33-132968c86241" alt=![Screenshot_2026-01-17-23-34-27-732_com ss android ugc trill-edit]>
          <p align="center">
            <video src="https://github.com/user-attachments/assets/617333fa-3d49-42ad-83df-2f71889d0e32">    
          <p align="center">
