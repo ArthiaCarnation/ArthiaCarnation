@@ -10,7 +10,7 @@
                  <p align="center">
                          and the venthia ig...
                  <p align="center">
-                         <img width="500" src="https://github.com/user-attachments/assets/7227ee78-82a6-4aef-b81c-ebcdd63d4957" alt=![1000002354]>
+                      <img width="800" alt="1000002363" src="https://github.com/user-attachments/assets/4dc8ac40-6b47-449d-bded-ea03a7cb873d" />
         <p align="center">
                 <img width="300" alt="1000002181" src="https://github.com/user-attachments/assets/d75dbd22-9ca7-4af8-8451-f8bd9a44e427" /> <img width="300" alt="1000002160" src="https://github.com/user-attachments/assets/0117e6cf-8138-4177-8aff-6156b7976db3" />
               <p align="center">
