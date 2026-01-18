@@ -2,21 +2,13 @@
 <p align="center"> 
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ArthiasLore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
-      <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://x.com/arthiapromise"" target="[M]"<strong> 𝗫 </strong></a> 
-                  <p align="center">
-                          Letting this haunt me
-           <p align="center">
-                       <img width="400" src="https://github.com/user-attachments/assets/73e74bd4-e4d5-4380-af33-132968c86241" alt=![Screenshot_2026-01-17-23-34-27-732_com ss android ugc trill-edit]>
+      <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://x.com/arthiapromise"" target="[M]"<strong> 𝗫 </strong></a>
          <p align="center">
            <video src="https://github.com/user-attachments/assets/617333fa-3d49-42ad-83df-2f71889d0e32">    
          <p align="center">
-                 IM SO FRICKIN INLOVE WITH THEM OMGGG ART BY SERENDIPITY
+  ART BY SERENDIPITY
          <p align="center">
                  <img width="600" alt="1000002352" src="https://github.com/user-attachments/assets/8e130acf-bdb7-4d17-a71f-bd9308741697" />
-                 <p align="center">
-                         and the venthia ig...
-                 <p align="center">
-                      <img width="500" alt="1000002406" src="https://github.com/user-attachments/assets/73433dde-706a-498a-971b-31f160166d74" />
         <p align="center">
                 <img width="300" alt="1000002181" src="https://github.com/user-attachments/assets/d75dbd22-9ca7-4af8-8451-f8bd9a44e427" /> <img width="300" alt="1000002160" src="https://github.com/user-attachments/assets/0117e6cf-8138-4177-8aff-6156b7976db3" />
               <p align="center">
@@ -39,18 +31,6 @@
  " If this is our last night , will you sing to me one last time? "
 <p align="Right">
 " I’ll sing of you, Of the girl who taught a rebel to believe in the morning sky even beyond the storm barrier. "
-      <p align="center">
-            <img width="800" src="https://github.com/user-attachments/assets/db6759c1-31bd-44ad-a183-4ff93d39defc" alt= ![1000002095]>
-      <p align="center">
-            Finding ways to kiss you.
-               <p align="center">
-            ────
-                  <p align="Right">
-            "Have i ever told you, you look so beautiful?.."
-                              <p align="left">
-            "A Thousand Times Venti."
-                      <p align="Right">
-                            "Then, let it be a thousand more."
        <p align="center">
     <img width="300" alt="1000031190" src="https://github.com/user-attachments/assets/54e642d6-f6cc-4595-a7d8-ea221211a5f8" />
                     <p align="left">
