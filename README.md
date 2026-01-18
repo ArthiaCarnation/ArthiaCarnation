@@ -4,6 +4,8 @@
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://x.com/arthiapromise"" target="[M]"<strong> 𝗫 </strong></a>
          <p align="center">
+      <video src="https://github.com/user-attachments/assets/9755e895-a750-42cb-86a8-ebda19238070">
+         <p align="center">
            <video src="https://github.com/user-attachments/assets/617333fa-3d49-42ad-83df-2f71889d0e32">    
          <p align="center">
   ART BY SERENDIPITY
