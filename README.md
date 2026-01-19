@@ -4,10 +4,6 @@
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://x.com/arthiapromise"" target="[M]"<strong> 𝗫 </strong></a>
          <p align="center">
-      <video src="https://github.com/user-attachments/assets/93d47f44-5d2e-4ddf-a35a-a296733ff08a">
-         <p align="center">
-           <video src="https://github.com/user-attachments/assets/617333fa-3d49-42ad-83df-2f71889d0e32">    
-         <p align="center">
   ART BY SERENDIPITY
          <p align="center">
                  <img width="600" alt="1000002352" src="https://github.com/user-attachments/assets/8e130acf-bdb7-4d17-a71f-bd9308741697" />
@@ -33,6 +29,8 @@
  " If this is our last night , will you sing to me one last time? "
 <p align="Right">
 " I’ll sing of you, Of the girl who taught a rebel to believe in the morning sky even beyond the storm barrier. "
+                 <p align="center">
+           <video src="https://github.com/user-attachments/assets/617333fa-3d49-42ad-83df-2f71889d0e32">    
        <p align="center">
     <img width="300" alt="1000031190" src="https://github.com/user-attachments/assets/54e642d6-f6cc-4595-a7d8-ea221211a5f8" />
                     <p align="left">
