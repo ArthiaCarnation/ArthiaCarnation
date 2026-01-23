@@ -3,6 +3,10 @@
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ArthiasLore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://x.com/arthiapromise"" target="[M]"<strong> 𝗫 </strong></a>
+                <p align="center">
+                        VENTHIA BRACELET AAAA THANK YOU FOR THIS DWAYNE AND AOKI :(((((
+             <p align="center">
+                         <img width="200" alt="IMG_20260121_191252" src="https://github.com/user-attachments/assets/841549b4-ebe7-41b6-a102-c5d71f0c13e1">
          <p align="center">
   ART BY SERENDIPITY
          <p align="center">
