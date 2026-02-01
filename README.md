@@ -4,9 +4,9 @@
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://x.com/arthiapromise"" target="[M]"<strong> 𝗫 </strong></a>
                 <p align="center">
-                        VENTHIA BRACELET AAAA THANK YOU FOR THIS DWAYNE AND AOKI :(((((
+ " The Primacy has Descended " ── ART BY @uzziahkarl
              <p align="center">
-                         <img width="200" alt="IMG_20260121_191252" src="https://github.com/user-attachments/assets/841549b4-ebe7-41b6-a102-c5d71f0c13e1">
+       <img width="941" height="945" alt="Screenshot_16" src="https://github.com/user-attachments/assets/38bbfd88-7c6a-47b6-9698-9f7aaf26e73a" />
          <p align="center">
   ART BY SERENDIPITY
          <p align="center">
