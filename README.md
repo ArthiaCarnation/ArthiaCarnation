@@ -6,7 +6,7 @@
                 <p align="center">
  " The Primacy has Descended " ── ART BY @uzziahkarl
              <p align="center">
-       <img width="941" height="945" alt="Screenshot_16" src="https://github.com/user-attachments/assets/38bbfd88-7c6a-47b6-9698-9f7aaf26e73a" />
+<img width="939" height="944" alt="Screenshot_17" src="https://github.com/user-attachments/assets/96304077-0ece-4978-99a9-3b5d1f7619a4" />
          <p align="center">
   ART BY SERENDIPITY
          <p align="center">
