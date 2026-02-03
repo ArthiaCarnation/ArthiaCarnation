@@ -7,8 +7,6 @@
  " The Primacy has Descended " ── ART BY @uzziahkarl
              <p align="center">
 <img width="939" height="938" alt="Screenshot_18" src="https://github.com/user-attachments/assets/528ecf57-197d-40d2-a1ab-091b7316e8db" />
-<p align="center">
- One of the best arts for my 2026 go check their art out they are so cool
          <p align="center">
   ART BY SERENDIPITY
          <p align="center">
