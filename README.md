@@ -3,6 +3,12 @@
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ArthiasLore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://x.com/arthiapromise"" target="[M]"<strong> 𝗫 </strong></a>
+         <p align="center">
+                 <img width="600" src="https://github.com/user-attachments/assets/95fd2a69-fcd4-45d9-bb3f-b981e2e76119" alt=![1000003016]>             
+         <p align="center">
+                 <img width="500" src="https://github.com/user-attachments/assets/2d980987-0c6f-4b92-a844-5eded47fc503" alt=![1000003018]>
+         <p align="center">
+                 <video src="https://github.com/user-attachments/assets/31bfc843-9d60-4fc9-9e3e-853cdb635d48">
                 <p align="center">
  " The Primacy has Descended " ── ART BY @uzziahkarl
              <p align="center">
