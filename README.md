@@ -6,7 +6,7 @@
          <p align="center">
                  Till i found her.
          <p align="center">
-<img width="900" alt="1000003048" src="https://github.com/user-attachments/assets/d588e210-e0ec-4de1-b506-791b12f149e9" />
+<img width="1000" alt="1000003048" src="https://github.com/user-attachments/assets/d588e210-e0ec-4de1-b506-791b12f149e9" />
          <p align="center">
                  <img width="500" src="https://github.com/user-attachments/assets/2d980987-0c6f-4b92-a844-5eded47fc503" alt=![1000003018]>
          <p align="center">
