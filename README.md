@@ -3,19 +3,7 @@
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ArthiasLore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://x.com/arthiapromise"" target="[M]"<strong> 𝗫 </strong></a>
-         <p align="center">
-                 ITS A STORYBOARD EDIT
-                      <p align="center">
-               <video src="https://github.com/user-attachments/assets/d386107b-1ef5-4a84-8753-254e927911f0"
-         <p align="center">
-                 Till i found her.
-         <p align="center">
-<img width="1000" alt="1000003048" src="https://github.com/user-attachments/assets/d588e210-e0ec-4de1-b506-791b12f149e9" />
-         <p align="center">
-                 <img width="500" src="https://github.com/user-attachments/assets/2d980987-0c6f-4b92-a844-5eded47fc503" alt=![1000003018]>
-         <p align="center">
-                 <video src="https://github.com/user-attachments/assets/31bfc843-9d60-4fc9-9e3e-853cdb635d48">
-                <p align="center">
+               <p align="center">
  " The Primacy has Descended " ── ART BY @uzziahkarl
              <p align="center">
 <img width="939" height="938" alt="Screenshot_18" src="https://github.com/user-attachments/assets/528ecf57-197d-40d2-a1ab-091b7316e8db" />
