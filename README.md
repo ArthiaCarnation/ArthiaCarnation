@@ -4,6 +4,10 @@
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://x.com/arthiapromise"" target="[M]"<strong> 𝗫 </strong></a>
          <p align="center">
+                  HAHHAHAHHAHHAHHAHA thank you Miko for forcing me
+         <p align="center">
+     <img width="900" alt="1000003508" src="https://github.com/user-attachments/assets/7abd6fc3-5341-4b2d-8414-bab00c2fc53d" />
+         <p align="center">
                  CANON ARTHIA OMGG TYSMM VETHER 
          <p align="center">
                  <img width="500" src="https://github.com/user-attachments/assets/08f4309f-fa85-4d3f-9c14-279118f5231c" alt=![1000965861]>
@@ -16,7 +20,7 @@
          <p align="center">
                  <img width="600" alt="1000002352" src="https://github.com/user-attachments/assets/8e130acf-bdb7-4d17-a71f-bd9308741697" />
         <p align="center">
-                <img width="300" alt="1000002181" src="https://github.com/user-attachments/assets/d75dbd22-9ca7-4af8-8451-f8bd9a44e427" /> <img width="300" alt="1000002160" src="https://github.com/user-attachments/assets/0117e6cf-8138-4177-8aff-6156b7976db3" />
+                <img width="300" alt="1000002181" src="https://github.com/user-attachments/assets/d75dbd22-9ca7-4af8-8451-f8bd9a44e427" /> <img width="300" alt="1000003505" src="https://github.com/user-attachments/assets/e4256ffb-3a53-4731-add6-bdbce6d55f37" />
               <p align="center">
 <img width="360" src="https://github.com/user-attachments/assets/90b2e27c-bce5-4b14-abe1-62fcfa5f4713" alt=![tumblr_e094526814a51d4eafcdb9d060fe8f78_10f5a22b_640]>
 <img width="370" src="https://github.com/user-attachments/assets/d103ec07-d782-47da-b1b6-e6436b450669" alt=![nameless-bard]> 
