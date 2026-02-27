@@ -6,7 +6,7 @@
          <p align="center">
                   HAHHAHAHHAHHAHHAHA thank you Miko for forcing me
          <p align="center">
-     <img width="900" alt="1000003508" src="https://github.com/user-attachments/assets/7abd6fc3-5341-4b2d-8414-bab00c2fc53d" />
+     <img width="900" alt="1000003515" src="https://github.com/user-attachments/assets/4fa9d489-70b0-49f9-bb41-1f873a405849" />
          <p align="center">
                  CANON ARTHIA OMGG TYSMM VETHER 
          <p align="center">
