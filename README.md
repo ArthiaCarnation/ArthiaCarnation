@@ -4,7 +4,7 @@
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://x.com/arthiapromise"" target="[M]"<strong> 𝗫 </strong></a>
            <p align="center">
-                   WIP BY YVON :))))))
+                   WIP BY YVON I LOVE THEIR PROGRESS
          <p align="center">
         <img width="341" height="644" alt="Screenshot_63" src="https://github.com/user-attachments/assets/f5e0823b-b075-4300-8946-c53dd26f6c74" />
          <p align="center">
