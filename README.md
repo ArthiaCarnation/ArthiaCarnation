@@ -4,6 +4,16 @@
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://x.com/arthiapromise"" target="[M]"<strong> 𝗫 </strong></a>
          <p align="center">
+                 ARTHIA PLUSH IS HEREE AAAAA THANK YOU SO MUCH FOR THE GIFT MIKO
+         <p align="center">
+                 <img width="500" src="https://github.com/user-attachments/assets/59230e62-72ba-4bcc-8771-11fb4fe62bae" alt=![1000969996]>
+<img width="500" src="https://github.com/user-attachments/assets/9ec03f41-1d6b-4fe0-ae17-39663cf50b96" alt=![1000969997]>
+         <p align="center"> 
+                 ART BY BRII TYSMM 
+         <p align="center"> 
+<img width="500" alt="1000969375" src="https://github.com/user-attachments/assets/c497e814-7e48-4bf8-9bff-ab8234d5e86d" />
+
+         <p align="center">
                  I need to wait for my new pen to redo this a little
                       <p align="center">
                  <img width="500" src="https://github.com/user-attachments/assets/103dc3a1-e4e5-4bf8-8c5a-31661e1ffd00" alt=![1000003661]>
