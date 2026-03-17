@@ -6,8 +6,8 @@
          <p align="center">
                  ARTHIA PLUSH IS HEREE AAAAA THANK YOU SO MUCH FOR THE GIFT MIKO i wish miko could ship it to me 😭😭😭
          <p align="center">
-                 <img width="500" src="https://github.com/user-attachments/assets/59230e62-72ba-4bcc-8771-11fb4fe62bae" alt=![1000969996]>
-<img width="500" src="https://github.com/user-attachments/assets/9ec03f41-1d6b-4fe0-ae17-39663cf50b96" alt=![1000969997]>
+                 <img width="300" src="https://github.com/user-attachments/assets/59230e62-72ba-4bcc-8771-11fb4fe62bae" alt=![1000969996]>
+<img width="300" src="https://github.com/user-attachments/assets/9ec03f41-1d6b-4fe0-ae17-39663cf50b96" alt=![1000969997]>
          <p align="center"> 
                  ART BY BRII TYSMM 
          <p align="center"> 
