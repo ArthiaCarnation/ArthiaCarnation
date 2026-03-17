@@ -12,7 +12,6 @@
                  ART BY BRII TYSMM 
          <p align="center"> 
 <img width="500" alt="1000969375" src="https://github.com/user-attachments/assets/c497e814-7e48-4bf8-9bff-ab8234d5e86d" />
-
          <p align="center">
                  I need to wait for my new pen to redo this a little
                       <p align="center">
