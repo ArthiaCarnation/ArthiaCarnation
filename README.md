@@ -13,21 +13,6 @@
          <p align="center"> 
 <img width="500" alt="1000969375" src="https://github.com/user-attachments/assets/c497e814-7e48-4bf8-9bff-ab8234d5e86d" />
          <p align="center">
-                 I need to wait for my new pen to redo this a little
-                      <p align="center">
-                 <img width="500" src="https://github.com/user-attachments/assets/103dc3a1-e4e5-4bf8-8c5a-31661e1ffd00" alt=![1000003661]>
-            <p align="center"> 
-                    I was so excited commissioning Glorizeda and Pogranichnik together for the first time then....my smile faded
-         <p align="center"> 
-                      <img width="341" src="https://github.com/user-attachments/assets/fd9a98c6-ba9e-4aaf-9364-c728caa1d1f5" alt=![Screenshot_2026-03-11-10-55-46-277_com miui calculator-edit]>
-           <p align="center">
-                   WIP BY YVON I LOVE THEIR PROGRESS
-         <p align="center">
-        <img width="341" height="644" alt="Screenshot_63" src="https://github.com/user-attachments/assets/f5e0823b-b075-4300-8946-c53dd26f6c74" />
-         <p align="center">
-     <img width="900" alt="1000003580" src="https://github.com/user-attachments/assets/0445025f-e8e2-4821-973e-9cdadaa16a7f" />
-<img width="900" height="4109" alt="1000003555" src="https://github.com/user-attachments/assets/e3a8a33d-29c5-4971-acac-58f059211851" />
-         <p align="center">
                  CANON ARTHIA OMGG TYSMM VETHER 
          <p align="center">
                  <img width="500" src="https://github.com/user-attachments/assets/08f4309f-fa85-4d3f-9c14-279118f5231c" alt=![1000965861]>
