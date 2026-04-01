@@ -6,7 +6,7 @@
          <p align="center">
                  Later guys im grinding Royal high but also trying to finish the meme:(((
          <p align="center">
-                 <img width="700" alt=1000972944 src="https://github.com/user-attachments/assets/adcf9ec4-91f2-466d-a4b9-66d9b5b42f61"
+                 <img width="400" alt=1000972944 src="https://github.com/user-attachments/assets/adcf9ec4-91f2-466d-a4b9-66d9b5b42f61">
          <p align="center">
          ART BY PI KOU !!!
          <p align="center">
