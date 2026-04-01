@@ -4,6 +4,19 @@
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://x.com/arthiapromise"" target="[M]"<strong> 𝗫 </strong></a>
          <p align="center">
+         ART BY PI KOU !!!
+         <p align="center">
+                 <img width="2201" height="1976" alt="1000972939" src="https://github.com/user-attachments/assets/e9e6b589-783a-4a78-88ef-b7ac2dfaffcc" />
+
+         <p align="center">
+                 HAPPY 6TH BIRTHDAY SEVEN AND FIRST VYATHENE 
+         <p align="center">
+                 <img width="500" alt="1000972938" src="https://github.com/user-attachments/assets/0c0ae6ac-3aee-48a6-bea7-252693986fe6" />
+         <p align="center">
+         ART BY BRII HEHHEE ARTHIA CUTESY 
+         <p align="center"> 
+                 <img width="500" alt="1000972935" src="https://github.com/user-attachments/assets/50b07edd-2a3b-48d2-bde4-22559b7af81b" />
+         <p align="center">
                  ARTHIA PLUSH IS HEREE AAAAA THANK YOU SO MUCH FOR THE GIFT MIKO i wish miko could ship it to me 😭😭😭
          <p align="center">
                  <img width="300" src="https://github.com/user-attachments/assets/59230e62-72ba-4bcc-8771-11fb4fe62bae" alt=![1000969996]>
