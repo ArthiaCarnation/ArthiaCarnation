@@ -6,8 +6,7 @@
          <p align="center">
          ART BY PI KOU !!!
          <p align="center">
-                 <img width="2201" height="1976" alt="1000972939" src="https://github.com/user-attachments/assets/e9e6b589-783a-4a78-88ef-b7ac2dfaffcc" />
-
+                 <img width="700" alt="1000972939" src="https://github.com/user-attachments/assets/e9e6b589-783a-4a78-88ef-b7ac2dfaffcc" />
          <p align="center">
                  HAPPY 6TH BIRTHDAY SEVEN AND FIRST VYATHENE 
          <p align="center">
