@@ -4,6 +4,10 @@
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://x.com/arthiapromise"" target="[M]"<strong> 𝗫 </strong></a>
          <p align="center">
+                 Later guys im grinding Royal high but also trying to finish the meme:(((
+         <p align="center">
+                 <img width="700" alt=1000972944 src="https://github.com/user-attachments/assets/adcf9ec4-91f2-466d-a4b9-66d9b5b42f61"
+         <p align="center">
          ART BY PI KOU !!!
          <p align="center">
                  <img width="700" alt="1000972939" src="https://github.com/user-attachments/assets/e9e6b589-783a-4a78-88ef-b7ac2dfaffcc" />
