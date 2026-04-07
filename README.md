@@ -10,15 +10,11 @@
          <p align="center">
          ART BY PI KOU !!!
          <p align="center">
-                 <img width="700" alt="1000972939" src="https://github.com/user-attachments/assets/e9e6b589-783a-4a78-88ef-b7ac2dfaffcc" />
+                 <img width="500" alt="1000004134" src="https://github.com/user-attachments/assets/f94caa1b-e315-455f-9788-8f7af9855264" />
          <p align="center">
                  HAPPY 6TH BIRTHDAY SEVEN AND FIRST VYATHENE 
          <p align="center">
                  <img width="500" alt="1000972938" src="https://github.com/user-attachments/assets/0c0ae6ac-3aee-48a6-bea7-252693986fe6" />
-         <p align="center">
-         ART BY BRII HEHHEE ARTHIA CUTESY 
-         <p align="center"> 
-                 <img width="500" alt="1000972935" src="https://github.com/user-attachments/assets/50b07edd-2a3b-48d2-bde4-22559b7af81b" />
          <p align="center">
                  ARTHIA PLUSH IS HEREE AAAAA THANK YOU SO MUCH FOR THE GIFT MIKO i wish miko could ship it to me 😭😭😭
          <p align="center">
