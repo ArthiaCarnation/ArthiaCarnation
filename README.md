@@ -4,6 +4,10 @@
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://x.com/arthiapromise"" target="[M]"<strong> 𝗫 </strong></a>
          <p align="center">
+                 MY GODDESS OMMMGGGGG WIP ART COM @FEELTHEMUZI
+         <p align="center">
+                 <img width="800" height="1280" alt="1000004289" src="https://github.com/user-attachments/assets/95d74615-6bd7-4a65-98fa-53d3e8e98253" />
+         <p align="center">
                  <img width="500" alt="1000976628" src="https://github.com/user-attachments/assets/9b89d27e-8035-4b02-8250-fc72e96cf7c7" />
          <p align="center">
                  <img width="400" alt="1000004192" src="https://github.com/user-attachments/assets/768757a7-bf1c-4a82-803b-60462d77a029" />
