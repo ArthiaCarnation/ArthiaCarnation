@@ -6,7 +6,9 @@
          <p align="center">
                  MY GODDESS OMMMGGGGG WIP ART COM @FEELTHEMUZI
          <p align="center">
-                 <img width="800" height="1280" alt="1000004289" src="https://github.com/user-attachments/assets/95d74615-6bd7-4a65-98fa-53d3e8e98253" />
+                 <img width="600" alt="1000004289" src="https://github.com/user-attachments/assets/95d74615-6bd7-4a65-98fa-53d3e8e98253" />
+                 <p align="center">
+                         <img width="600" alt="1000004280" src="https://github.com/user-attachments/assets/90fe19fa-b5ed-4c1c-8be2-5fb8b4a0a5e2" />
          <p align="center">
                  <img width="500" alt="1000976628" src="https://github.com/user-attachments/assets/9b89d27e-8035-4b02-8250-fc72e96cf7c7" />
          <p align="center">
