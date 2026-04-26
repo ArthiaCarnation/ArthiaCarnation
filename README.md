@@ -4,7 +4,7 @@
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://x.com/arthiapromise"" target="[M]"<strong> 𝗫 </strong></a>
          <p align="center">
-                 the thumbnail art for the 1.7k yes its different from the other one im having 2 illustration of them HAHAHAHHAHAHAHAHAH
+                 the thumbnail art for the 1.7k FROM MY FAV ARTIST BTW yes its different from the other one im having 2 illustration of them HAHAHAHHAHAHAHAHAH
          <p align="center"> 
          <img width="500" alt="1000977770" src="https://github.com/user-attachments/assets/39723230-cd02-490d-9dab-9e407edb3a2a" />
          <p align="center">
