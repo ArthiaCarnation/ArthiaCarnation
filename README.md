@@ -4,21 +4,17 @@
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://x.com/arthiapromise"" target="[M]"<strong> 𝗫 </strong></a>
          <p align="center">
-                 the thumbnail art for the 1.7k FROM MY FAV ARTIST BTW yes its different from the other one im having 2 illustration of them HAHAHAHHAHAHAHAHAH
+                 <video src="https://github.com/user-attachments/assets/a6dccf39-44f0-4d9e-bc3c-e65985047bbe">
+         <p align="center">
+                 the 1.7k FROM MY FAV ARTIST BTW
          <p align="center"> 
-         <img width="500" alt="1000977770" src="https://github.com/user-attachments/assets/39723230-cd02-490d-9dab-9e407edb3a2a" />
+         <img width="960" alt="1000004313" src="https://github.com/user-attachments/assets/0cd46323-9197-4391-8b7c-7a0b90da641e" />
          <p align="center">
                  MY GODDESS OMMMGGGGG WIP ART COM @FEELTHEMUZI
          <p align="center">
                  <img width="600" alt="1000004289" src="https://github.com/user-attachments/assets/95d74615-6bd7-4a65-98fa-53d3e8e98253" />
-                 <p align="center">
-                         <img width="600" alt="1000004280" src="https://github.com/user-attachments/assets/90fe19fa-b5ed-4c1c-8be2-5fb8b4a0a5e2" />
          <p align="center">
                  <img width="500" alt="1000976628" src="https://github.com/user-attachments/assets/9b89d27e-8035-4b02-8250-fc72e96cf7c7" />
-         <p align="center">
-                 <img width="400" alt="1000004192" src="https://github.com/user-attachments/assets/768757a7-bf1c-4a82-803b-60462d77a029" />
-         <p align="center">
-                 <img width="400" alt=1000972944 src="https://github.com/user-attachments/assets/adcf9ec4-91f2-466d-a4b9-66d9b5b42f61">
          <p align="center">
          ART BY PI KOU !!!
          <p align="center">
