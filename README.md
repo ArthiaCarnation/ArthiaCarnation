@@ -4,8 +4,6 @@
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise"" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a>
          <p align="center">
-   <img width="500" alt="1000979090" src="https://github.com/user-attachments/assets/230ad3a2-78bf-4dad-9088-885ceed238ef" />
-         <p align="center">
                  <img width="500" alt="1000979049" src="https://github.com/user-attachments/assets/245a9904-c8e1-4643-83fe-496c12523336" />
          <p align="center">
                  <video src="https://github.com/user-attachments/assets/a6dccf39-44f0-4d9e-bc3c-e65985047bbe">
@@ -17,8 +15,6 @@
                  MY GODDESS OMMMGGGGG WIP ART COM @FEELTHEMUZI
          <p align="center">
                  <img width="600" alt="1000004289" src="https://github.com/user-attachments/assets/95d74615-6bd7-4a65-98fa-53d3e8e98253" />
-         <p align="center">
-                 <img width="500" alt="1000976628" src="https://github.com/user-attachments/assets/9b89d27e-8035-4b02-8250-fc72e96cf7c7" />
          <p align="center">
          ART BY PI KOU !!!
          <p align="center">
