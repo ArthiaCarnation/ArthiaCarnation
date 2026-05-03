@@ -24,10 +24,6 @@
          <p align="center">
                  <img width="500" alt="1000004134" src="https://github.com/user-attachments/assets/f94caa1b-e315-455f-9788-8f7af9855264" />
          <p align="center">
-                 HAPPY 6TH BIRTHDAY SEVEN AND FIRST VYATHENE 
-         <p align="center">
-                 <img width="500" alt="1000972938" src="https://github.com/user-attachments/assets/0c0ae6ac-3aee-48a6-bea7-252693986fe6" />
-         <p align="center">
                  ARTHIA PLUSH IS HEREE AAAAA THANK YOU SO MUCH FOR THE GIFT MIKO i wish miko could ship it to me 😭😭😭
          <p align="center">
                  <img width="300" src="https://github.com/user-attachments/assets/59230e62-72ba-4bcc-8771-11fb4fe62bae" alt=![1000969996]>
