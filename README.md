@@ -14,19 +14,11 @@
          <p align="center">
                  <video src="https://github.com/user-attachments/assets/a6dccf39-44f0-4d9e-bc3c-e65985047bbe">
          <p align="center">
-                 the 1.7k FROM MY FAV ARTIST BTW
-         <p align="center"> 
-         <img width="960" alt="1000004313" src="https://github.com/user-attachments/assets/0cd46323-9197-4391-8b7c-7a0b90da641e" />
-         <p align="center">
-                 MY GODDESS OMMMGGGGG WIP ART COM @FEELTHEMUZI
-         <p align="center">
-                 <img width="600" alt="1000004289" src="https://github.com/user-attachments/assets/95d74615-6bd7-4a65-98fa-53d3e8e98253" />
-         <p align="center">
          ART BY PI KOU !!!
          <p align="center">
                  <img width="500" alt="1000004134" src="https://github.com/user-attachments/assets/f94caa1b-e315-455f-9788-8f7af9855264" />
          <p align="center">
-                 ARTHIA PLUSH IS HEREE AAAAA THANK YOU SO MUCH FOR THE GIFT MIKO i wish miko could ship it to me 😭😭😭
+                 ARTHIA KEYCHAIN TYSM MIKO !!
          <p align="center">
                  <img width="300" src="https://github.com/user-attachments/assets/59230e62-72ba-4bcc-8771-11fb4fe62bae" alt=![1000969996]>
 <img width="300" src="https://github.com/user-attachments/assets/9ec03f41-1d6b-4fe0-ae17-39663cf50b96" alt=![1000969997]>
