@@ -17,19 +17,6 @@
          ART BY PI KOU !!!
          <p align="center">
                  <img width="500" alt="1000004134" src="https://github.com/user-attachments/assets/f94caa1b-e315-455f-9788-8f7af9855264" />
-         <p align="center">
-                 ARTHIA KEYCHAIN TYSM MIKO !!
-         <p align="center">
-                 <img width="300" src="https://github.com/user-attachments/assets/59230e62-72ba-4bcc-8771-11fb4fe62bae" alt=![1000969996]>
-<img width="300" src="https://github.com/user-attachments/assets/9ec03f41-1d6b-4fe0-ae17-39663cf50b96" alt=![1000969997]>
-         <p align="center"> 
-                 ART BY BRII TYSMM 
-         <p align="center"> 
-<img width="500" alt="1000969375" src="https://github.com/user-attachments/assets/c497e814-7e48-4bf8-9bff-ab8234d5e86d" />
-         <p align="center">
-                 CANON ARTHIA OMGG TYSMM VETHER 
-         <p align="center">
-                 <img width="500" src="https://github.com/user-attachments/assets/08f4309f-fa85-4d3f-9c14-279118f5231c" alt=![1000965861]>
                <p align="center">
  " The Primacy has Descended " ── ART BY @uzziahkarl
              <p align="center">
