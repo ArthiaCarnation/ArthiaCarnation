@@ -3,6 +3,8 @@
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ArthiasLore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise"" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a>
+         <p align="center">
+ <video src=https://github.com/user-attachments/assets/dee438c9-bbf4-45eb-927c-741d7bb092e4>
              <p align="center">
                      <img width="176" alt="pony-town-Bard&#39;s Goddess 💮💍 CHECK GH-sit-blinking-toy365-4x" src="https://github.com/user-attachments/assets/e7ee5f47-a26d-45f7-af9c-c7c11afc78ea" /> <img width="176" alt="pony-town-me and my woman Arthia  DNC-lie-blinking-toy362-4x" src="https://github.com/user-attachments/assets/5d16db3d-4293-482d-bee4-59c8d11dedc7" />
              <p align="center">
