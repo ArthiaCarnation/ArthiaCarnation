@@ -4,9 +4,7 @@
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise"" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a>
          <p align="center">
-                 im not done with the others 
-         <p align="center">
-                 <img width="400" alt="1000004420" src="https://github.com/user-attachments/assets/b5bea1e5-57f5-47db-9f15-d839a303e9be" />
+<img width="800" height="541" alt="Screenshot 2026-05-06 234555" src="https://github.com/user-attachments/assets/3afdd0ba-b817-41bb-ba10-90f98e4c1a02" />
          <p align="center">
  <video src=https://github.com/user-attachments/assets/dee438c9-bbf4-45eb-927c-741d7bb092e4>
              <p align="center">
