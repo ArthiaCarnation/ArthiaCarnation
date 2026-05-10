@@ -12,8 +12,6 @@
                  <p align="center">
                          <img width="900" alt="1000004439" src="https://github.com/user-attachments/assets/e524a380-8e40-40d6-a30b-f87e70a0ea1f" />
          <p align="center">
-<img width="800" height="541" alt="Screenshot 2026-05-06 234555" src="https://github.com/user-attachments/assets/3afdd0ba-b817-41bb-ba10-90f98e4c1a02" />
-         <p align="center">
  <video src=https://github.com/user-attachments/assets/dee438c9-bbf4-45eb-927c-741d7bb092e4>
              <p align="center">
                      <img width="176" alt="pony-town-Bard&#39;s Goddess 💮💍 CHECK GH-sit-blinking-toy365-4x" src="https://github.com/user-attachments/assets/e7ee5f47-a26d-45f7-af9c-c7c11afc78ea" /> <img width="176" alt="pony-town-me and my woman Arthia  DNC-lie-blinking-toy362-4x" src="https://github.com/user-attachments/assets/5d16db3d-4293-482d-bee4-59c8d11dedc7" />
