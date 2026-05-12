@@ -4,6 +4,10 @@
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise"" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a>
          <p align="center">
+                 im actually going to save up for this and workout and have more skincare and learn make up..
+         <p align="center">
+                 <img width="600" alt="1000004548" src="https://github.com/user-attachments/assets/fa64ecbb-17f2-42e2-a8d8-40f81c2dc566" />
+         <p align="center">
  https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T
          <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
