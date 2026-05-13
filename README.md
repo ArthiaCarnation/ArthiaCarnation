@@ -1,18 +1,10 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=fdcddf&style=flat-square&label=OurPromise)
 <p align="center"> 
-   𝐓𝐎𝐓𝐀𝐋 𝐒𝐏𝐄𝐍𝐃 𝐈𝐍 𝐀𝐑𝐓 𝐂𝐎𝐌𝐒 : 17,529 ノ 𝐀𝐑𝐓𝐇𝐈𝐀 𝐂𝐎𝐒𝐏𝐋𝐀𝐘 : 300 / 𝟏𝟑,𝟓𝟎𝟎
+   𝐓𝐎𝐓𝐀𝐋 𝐒𝐏𝐄𝐍𝐃 𝐈𝐍 𝐀𝐑𝐓 𝐂𝐎𝐌𝐒 : 17,529 
 <p align="center"> 
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ArthiasLore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise"" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a>
-         <p align="center">
-            i realize that my legs are too long for venti...also RIP Cosplay Venti youll be missed forever (I lost one of his items and its been 4 years)
-      <p align="center">
-         <img width="700" alt="395730982-312955764959268-5412943259729139549-n-1" src="https://github.com/user-attachments/assets/af005b07-b59e-4260-81c7-a72078963eb6" />
-         <p align="center">
-                 im actually going to save up for this and workout and have more skincare and learn make up..
-         <p align="center">
-                 <img width="600" alt="1000004548" src="https://github.com/user-attachments/assets/fa64ecbb-17f2-42e2-a8d8-40f81c2dc566" />
          <p align="center">
  https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T
          <p align="center">
