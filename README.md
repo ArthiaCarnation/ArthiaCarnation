@@ -8,7 +8,7 @@
          <p align="center">
             i realize that my legs are too long for venti...also RIP Cosplay Venti youll be missed forever (I lost one of his items and its been 4 years)
       <p align="center">
-         <img width="700" height="2000" alt="395730982-312955764959268-5412943259729139549-n-1" src="https://github.com/user-attachments/assets/af005b07-b59e-4260-81c7-a72078963eb6" />
+         <img width="700" alt="395730982-312955764959268-5412943259729139549-n-1" src="https://github.com/user-attachments/assets/af005b07-b59e-4260-81c7-a72078963eb6" />
          <p align="center">
                  im actually going to save up for this and workout and have more skincare and learn make up..
          <p align="center">
