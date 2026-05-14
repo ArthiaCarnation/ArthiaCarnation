@@ -1,6 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=fdcddf&style=flat-square&label=OurPromise)
 <p align="center"> 
-   𝐓𝐎𝐓𝐀𝐋 𝐒𝐏𝐄𝐍𝐃 𝐈𝐍 𝐀𝐑𝐓 𝐂𝐎𝐌𝐒 : 17,529 
+   𝐓𝐎𝐓𝐀𝐋 𝐒𝐏𝐄𝐍𝐃 𝐈𝐍 𝐀𝐑𝐓 𝐂𝐎𝐌𝐒 : 17,529 Arthia Cosplay : / 20k  
 <p align="center"> 
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ArthiasLore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
