@@ -8,7 +8,7 @@
     <p align="center">
        ARTHIA COSPLAY IN ONE YEARNAHAAHHAHA
     <p align="center">
-       <img width="900" alt="1000004678" src="https://github.com/user-attachments/assets/e4b98b22-b240-495c-877a-657471ca132a" />
+       <img width="800' alt="1000004691" src="https://github.com/user-attachments/assets/a7a244fb-95f0-49ee-8efa-56fb171d753d" />
          <p align="center">
  https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T
          <p align="center">
