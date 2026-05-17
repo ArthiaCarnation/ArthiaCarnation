@@ -5,6 +5,10 @@
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ArthiasLore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise"" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a>
+        <p align="center"> 
+           TYYSSMM MMIKYIII I FINALLY HAVE A PROP FOR MY ARTHIA COSPLAY I ALREADY HAVE SOMEONE TO DO IT HAHAHA
+    <p align="center"> 
+       <img width="400" alt="Messenger_creation_A478D3CC-43F3-4A6A-927F-BB23700B58F7" src="https://github.com/user-attachments/assets/7ea85c55-b659-4cb5-ae02-e98bac927e33" />
     <p align="center">
        ARTHIA COSPLAY IN ONE YEARNAHAAHHAHA
     <p align="center">
