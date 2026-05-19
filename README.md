@@ -38,7 +38,8 @@
          <p align="center">
                  <img width="600" alt="1000002352" src="https://github.com/user-attachments/assets/8e130acf-bdb7-4d17-a71f-bd9308741697" />
         <p align="center">
-                <img width="300" alt="1000002181" src="https://github.com/user-attachments/assets/d75dbd22-9ca7-4af8-8451-f8bd9a44e427" /> <img width="300" alt="1000003505" src="https://github.com/user-attachments/assets/e4256ffb-3a53-4731-add6-bdbce6d55f37" />
+                <img width="300" alt="1000004754" src="https://github.com/user-attachments/assets/5918f67b-d16e-4ef0-881d-ff3216b73fc5" />
+ <img width="300" alt="1000003505" src="https://github.com/user-attachments/assets/e4256ffb-3a53-4731-add6-bdbce6d55f37" />
               <p align="center">
 <img width="360" src="https://github.com/user-attachments/assets/90b2e27c-bce5-4b14-abe1-62fcfa5f4713" alt=![tumblr_e094526814a51d4eafcdb9d060fe8f78_10f5a22b_640]>
 <img width="370" src="https://github.com/user-attachments/assets/d103ec07-d782-47da-b1b6-e6436b450669" alt=![nameless-bard]> 
