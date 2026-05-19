@@ -3,65 +3,12 @@
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ArthiasLore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise"" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a>
-        <p align="center"> 
-           TYYSSMM MMIKYIII I FINALLY HAVE A PROP FOR MY ARTHIA COSPLAY I ALREADY HAVE SOMEONE TO DO IT HAHAHA
-    <p align="center"> 
-       <img width="400" alt="Messenger_creation_A478D3CC-43F3-4A6A-927F-BB23700B58F7" src="https://github.com/user-attachments/assets/7ea85c55-b659-4cb5-ae02-e98bac927e33" />
-    <p align="center">
-       I TOLD MYSELF I WONT DO THIS AGAIN BUT ARTHIA SKIRT IS SO UGLY
-    <p align="center">
- <img width="500" alt="1000004709" src="https://github.com/user-attachments/assets/8f31a4f9-4eb0-4f69-b99d-d3ff3c8bb999" />
          <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
                  <p align="center">
                  🍃🪷 " The wind carries many song, but mine will only find it's melody when you find your rest. Only then, will I bloom like the cecilia's in the wind " — They kissed on the water reflection
                  <p align="center">
                          <img width="900" alt="1000004439" src="https://github.com/user-attachments/assets/e524a380-8e40-40d6-a30b-f87e70a0ea1f" />
-         <p align="center">
- <video src=https://github.com/user-attachments/assets/dee438c9-bbf4-45eb-927c-741d7bb092e4>
-             <p align="center">
-                     <img width="176" alt="pony-town-Bard&#39;s Goddess 💮💍 CHECK GH-sit-blinking-toy365-4x" src="https://github.com/user-attachments/assets/e7ee5f47-a26d-45f7-af9c-c7c11afc78ea" /> <img width="176" alt="pony-town-me and my woman Arthia  DNC-lie-blinking-toy362-4x" src="https://github.com/user-attachments/assets/5d16db3d-4293-482d-bee4-59c8d11dedc7" />
-             <p align="center">
-                     ART BY @TOSHIUII ON TIKTOK !!
-          <p align="center">
-          ────
-         <p align="center">
-                 <img width="600" alt="51538" src="https://github.com/user-attachments/assets/47e84760-a7a3-4464-8f7d-9877198d0aca" />
-         <p align="center">
-                 <video src="https://github.com/user-attachments/assets/a6dccf39-44f0-4d9e-bc3c-e65985047bbe">
-         <p align="center">
-         ART BY PI KOU
-         <p align="center">
-                 <img width="500" alt="1000004134" src="https://github.com/user-attachments/assets/f94caa1b-e315-455f-9788-8f7af9855264" />
-         <p align="center">
-  ART BY SERENDIPITY
-         <p align="center">
-                 <img width="600" alt="1000002352" src="https://github.com/user-attachments/assets/8e130acf-bdb7-4d17-a71f-bd9308741697" />
-        <p align="center">
-                <img width="300" alt="1000004754" src="https://github.com/user-attachments/assets/5918f67b-d16e-4ef0-881d-ff3216b73fc5" />
- <img width="300" alt="1000003505" src="https://github.com/user-attachments/assets/e4256ffb-3a53-4731-add6-bdbce6d55f37" />
-              <p align="center">
-<img width="360" src="https://github.com/user-attachments/assets/90b2e27c-bce5-4b14-abe1-62fcfa5f4713" alt=![tumblr_e094526814a51d4eafcdb9d060fe8f78_10f5a22b_640]>
-<img width="370" src="https://github.com/user-attachments/assets/d103ec07-d782-47da-b1b6-e6436b450669" alt=![nameless-bard]> 
-                       <p align="center">
-         <img width="200" src="https://github.com/user-attachments/assets/f2d83299-a62b-4c1c-bdb9-b1c96452e1e2" alt=![pony-town-NamelessBard Lover INT !! 🎸🌺-sit-blinking-padded-toy365-4x]>
-<img width="185" src="https://github.com/user-attachments/assets/cd6caf44-ff9d-425b-9345-19e5d89fb11c" alt=![pony-town-NamelessBard x Viviana 🎸🌺-sit-blinking-padded-4x]>
-  <p align="center">
-────꒰ა ♡ ໒꒱────
-  <p align="center">
-ʚ 💌🌺 x 🏹🕊️ ɞ
-  <p align="center">
-𝙈𝚊𝚒𝚍𝚎𝚗 ✗ 𝙍𝚎𝚋𝚎𝚕 │ 𝓥𝘪𝘷𝘪𝘢𝘯𝘢 ✗ 𝓝𝘢𝘮𝘦𝘭𝘦𝘴𝘴 𝓑𝘢𝘳𝘥  ╭ 𝘏𝘪𝘮𝘮𝘦𝘭 ╯
-  <p align="center">
-𝙻𝚘𝚟𝚎𝙰𝚛𝚛𝚘𝚠 
-<p align="center">
-   Lowkey ─ NIKI ノ I hear a symphony ─ CODY FRY ノ About you ─ The 1975 ノ Roi / Mai ─ Videoclub
-<p align="left">
- " If this is our last night , will you sing to me one last time? "
-<p align="Right">
-" I’ll sing of you, Of the girl who taught a rebel to believe in the morning sky even beyond the storm barrier. "
-                 <p align="center">
-           <video src="https://github.com/user-attachments/assets/617333fa-3d49-42ad-83df-2f71889d0e32">    
        <p align="center">
     <img width="300" alt="1000031190" src="https://github.com/user-attachments/assets/54e642d6-f6cc-4595-a7d8-ea221211a5f8" />
                     <p align="left">
@@ -122,7 +69,43 @@ Venti’s grin grew quiet but sincere She’d seen right through him
 “I could say I was following destiny" His eyes glimmered as he added softly “…and it led me right to you.”         
               <p align="center">
       <img width="800" alt="1000001346" src="https://github.com/user-attachments/assets/3e17f874-6a82-4c64-9a2c-32b618109139" />
-               <p align="center">
+                       <p align="center">
+                     <img width="176" alt="pony-town-Bard&#39;s Goddess 💮💍 CHECK GH-sit-blinking-toy365-4x" src="https://github.com/user-attachments/assets/e7ee5f47-a26d-45f7-af9c-c7c11afc78ea" /> <img width="176" alt="pony-town-me and my woman Arthia  DNC-lie-blinking-toy362-4x" src="https://github.com/user-attachments/assets/5d16db3d-4293-482d-bee4-59c8d11dedc7" />
+                       <p align="center">
+                     ART BY @TOSHIUII ON TIKTOK !!
+          <p align="center">
+          ────
+         <p align="center">
+                 <img width="600" alt="51538" src="https://github.com/user-attachments/assets/47e84760-a7a3-4464-8f7d-9877198d0aca" />
+                 <p align="center">
+  ART BY SERENDIPITY
+         <p align="center">
+                 <img width="600" alt="1000002352" src="https://github.com/user-attachments/assets/8e130acf-bdb7-4d17-a71f-bd9308741697" />
+        <p align="center">
+                <img width="300" alt="1000004754" src="https://github.com/user-attachments/assets/5918f67b-d16e-4ef0-881d-ff3216b73fc5" />
+ <img width="300" alt="1000003505" src="https://github.com/user-attachments/assets/e4256ffb-3a53-4731-add6-bdbce6d55f37" />
+              <p align="center">
+<img width="360" src="https://github.com/user-attachments/assets/90b2e27c-bce5-4b14-abe1-62fcfa5f4713" alt=![tumblr_e094526814a51d4eafcdb9d060fe8f78_10f5a22b_640]>
+<img width="370" src="https://github.com/user-attachments/assets/d103ec07-d782-47da-b1b6-e6436b450669" alt=![nameless-bard]> 
+                       <p align="center">
+         <img width="200" src="https://github.com/user-attachments/assets/f2d83299-a62b-4c1c-bdb9-b1c96452e1e2" alt=![pony-town-NamelessBard Lover INT !! 🎸🌺-sit-blinking-padded-toy365-4x]>
+<img width="185" src="https://github.com/user-attachments/assets/cd6caf44-ff9d-425b-9345-19e5d89fb11c" alt=![pony-town-NamelessBard x Viviana 🎸🌺-sit-blinking-padded-4x]>
+  <p align="center">
+────꒰ა ♡ ໒꒱────
+  <p align="center">
+ʚ 💌🌺 x 🏹🕊️ ɞ
+  <p align="center">
+𝙈𝚊𝚒𝚍𝚎𝚗 ✗ 𝙍𝚎𝚋𝚎𝚕 │ 𝓥𝘪𝘷𝘪𝘢𝘯𝘢 ✗ 𝓝𝘢𝘮𝘦𝘭𝘦𝘴𝘴 𝓑𝘢𝘳𝘥  ╭ 𝘏𝘪𝘮𝘮𝘦𝘭 ╯
+  <p align="center">
+𝙻𝚘𝚟𝚎𝙰𝚛𝚛𝚘𝚠 
+<p align="center">
+   Lowkey ─ NIKI ノ I hear a symphony ─ CODY FRY ノ About you ─ The 1975 ノ Roi / Mai ─ Videoclub
+<p align="left">
+ " If this is our last night , will you sing to me one last time? "
+<p align="Right">
+" I’ll sing of you, Of the girl who taught a rebel to believe in the morning sky even beyond the storm barrier. "
+                 <p align="center">
+           <video src="https://github.com/user-attachments/assets/617333fa-3d49-42ad-83df-2f71889d0e32">    
 ────꒰ ᧔ෆ᧓ ꒱────
   <p align="center">
 ʚ 💍🌸 x 🍃🍎ɞ
@@ -174,8 +157,10 @@ Venti’s grin grew quiet but sincere She’d seen right through him
                   <p align="center">
                          <p align="center">
               <img width="400" src="https://github.com/user-attachments/assets/35432c07-b908-4346-8f3d-3e7e685ae1f0" alt=![1000935713]>
+                                 <p align="center">
+                 <img width="500" alt="1000004134" src="https://github.com/user-attachments/assets/f94caa1b-e315-455f-9788-8f7af9855264" />
                                    <p align="center">
-                     Venthia 1 by Xeneless Venthia 2 by Erhlia Venthia 3 by Latjaevel Venthia 4 by Kyuari Venthia 5 by Keira Venthia 6 AE RITH
+                     Venthia 1 by Xeneless Venthia 2 by Erhlia Venthia 3 by Latjaevel Venthia 4 by Kyuari Venthia 5 by Keira Venthia 6 AE RITH Venthia 6 Pi Kou
                                                          <p align="center">
                                 <img width="487" height="262" alt="Screenshot_12" src="https://github.com/user-attachments/assets/026ac43a-2b22-4049-a0d5-351adfc7caba" />
                         <p align="center">
@@ -196,6 +181,8 @@ Venti’s grin grew quiet but sincere She’d seen right through him
    <video src="https://github.com/user-attachments/assets/fb8b8262-c433-4fe9-9dbc-de999cf3d3ba">
    <p align="center">
  <video src="https://github.com/user-attachments/assets/8192c089-a3a4-4219-9e29-7294f8c20a8c">
-
-
+<p align="center">
+                 <video src="https://github.com/user-attachments/assets/a6dccf39-44f0-4d9e-bc3c-e65985047bbe">
+<p align="center">
+ <video src=https://github.com/user-attachments/assets/dee438c9-bbf4-45eb-927c-741d7bb092e4>
 
