@@ -10,9 +10,9 @@
     <p align="center"> 
        <img width="400" alt="Messenger_creation_A478D3CC-43F3-4A6A-927F-BB23700B58F7" src="https://github.com/user-attachments/assets/7ea85c55-b659-4cb5-ae02-e98bac927e33" />
     <p align="center">
-       ARTHIA COSPLAY IN ONE YEARNAHAAHHAHA
+       I TILD MYSELF I WONT DO THIS AGAIN BUT ARTHIA SKIRT IS SO UGLY
     <p align="center">
-       <img width="800' alt="1000004691" src="https://github.com/user-attachments/assets/a7a244fb-95f0-49ee-8efa-56fb171d753d" />
+ <img width="500" alt="1000004709" src="https://github.com/user-attachments/assets/8f31a4f9-4eb0-4f69-b99d-d3ff3c8bb999" />
          <p align="center">
  https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T
          <p align="center">
