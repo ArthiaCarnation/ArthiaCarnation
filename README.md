@@ -1,7 +1,5 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=fdcddf&style=flat-square&label=OurPromise)
 <p align="center"> 
-   𝐓𝐎𝐓𝐀𝐋 𝐒𝐏𝐄𝐍𝐃 𝐈𝐍 𝐀𝐑𝐓 𝐂𝐎𝐌𝐒 : 17,529
-<p align="center"> 
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ArthiasLore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise"" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a>
@@ -10,11 +8,9 @@
     <p align="center"> 
        <img width="400" alt="Messenger_creation_A478D3CC-43F3-4A6A-927F-BB23700B58F7" src="https://github.com/user-attachments/assets/7ea85c55-b659-4cb5-ae02-e98bac927e33" />
     <p align="center">
-       I TILD MYSELF I WONT DO THIS AGAIN BUT ARTHIA SKIRT IS SO UGLY
+       I TOLD MYSELF I WONT DO THIS AGAIN BUT ARTHIA SKIRT IS SO UGLY
     <p align="center">
  <img width="500" alt="1000004709" src="https://github.com/user-attachments/assets/8f31a4f9-4eb0-4f69-b99d-d3ff3c8bb999" />
-         <p align="center">
- https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T
          <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
                  <p align="center">
