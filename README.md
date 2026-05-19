@@ -30,13 +30,9 @@
          <p align="center">
                  <video src="https://github.com/user-attachments/assets/a6dccf39-44f0-4d9e-bc3c-e65985047bbe">
          <p align="center">
-         ART BY PI KOU !!!
+         ART BY PI KOU
          <p align="center">
                  <img width="500" alt="1000004134" src="https://github.com/user-attachments/assets/f94caa1b-e315-455f-9788-8f7af9855264" />
-               <p align="center">
- " The Primacy has Descended " ── ART BY @uzziahkarl
-             <p align="center">
-<img width="939" height="938" alt="Screenshot_18" src="https://github.com/user-attachments/assets/528ecf57-197d-40d2-a1ab-091b7316e8db" />
          <p align="center">
   ART BY SERENDIPITY
          <p align="center">
