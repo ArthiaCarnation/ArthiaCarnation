@@ -3,14 +3,16 @@
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ArthiasLore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>
-                    <p align="center">
-    <img width="200" alt="1000031190" src="https://github.com/user-attachments/assets/54e642d6-f6cc-4595-a7d8-ea221211a5f8" />
          <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
                  <p align="center">
                  🍃🪷 " The wind carries many song, but mine will only find it's melody when you find your rest. Only then, will I bloom like the cecilia's in the wind " — They kissed on the water reflection
                  <p align="center">
                          <img width="900" alt="1000004439" src="https://github.com/user-attachments/assets/e524a380-8e40-40d6-a30b-f87e70a0ea1f" />
+                              <p align="center">
+    <img width="300" alt="1000031190" src="https://github.com/user-attachments/assets/54e642d6-f6cc-4595-a7d8-ea221211a5f8" />
+                                          <p align="center">
+                                             — Arthia and Venti switch flowers on their rings to symbolize their love for one another. Arthia wears Venti’s Cecilia, and Venti wears Arthia’s Carnation. It symbolizes that their love is not just about themselves but about honoring and protecting one another. A sign of unity, devotion, and carrying a piece of each other’s soul.     
          <p align="center">
 <img width="800" alt="Screenshot_25" src="https://github.com/user-attachments/assets/729217fc-e453-4953-b2f2-1a6f3334e9c7" />
                  <p align="center">
