@@ -4,9 +4,11 @@
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>
          <p align="center">
-                 <img width="619" height="349" alt="1000004760" src="https://github.com/user-attachments/assets/5381c5f5-61d5-4a60-b87d-ae5f4b8dbf35" />
+                 <img width="800" alt="1000004757" src="https://github.com/user-attachments/assets/b532bd6f-c953-4abd-834c-371b84002409" />
          <p align="center">
-                 <img width="900" alt="1000004761" src="https://github.com/user-attachments/assets/167f8666-fe01-45c7-835b-c7b96318ca4c" />
+                 <img width="800" alt="1000004760" src="https://github.com/user-attachments/assets/5381c5f5-61d5-4a60-b87d-ae5f4b8dbf35" />
+         <p align="center">
+                 <img width="800" alt="1000004761" src="https://github.com/user-attachments/assets/df960aa5-cdf7-432e-81ee-524dff1a6aed" />
          <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
                  <p align="center">
