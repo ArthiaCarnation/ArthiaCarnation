@@ -4,6 +4,16 @@
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>
          <p align="center">
+                 <img width= "500" alt="1000004926" src="https://github.com/user-attachments/assets/be37ec48-2188-421b-9ef4-f92719763369" />
+<p align="center">
+        art by vii 🥺
+        <p align="center">
+                <img width="400" alt="1000004927" src="https://github.com/user-attachments/assets/8b8e5852-eb0b-42d6-817e-fab651774398" />
+<p align="center">
+        art by zel 😋
+         <p align="center">
+                 <img width="300" alt="1000004929" src="https://github.com/user-attachments/assets/da10b9b3-fec6-434d-9d6d-ca46a27ad892" />
+                 <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
                  <p align="center">
                  🍃🪷 " The wind carries many song, but mine will only find it's melody when you find your rest. Only then, will I bloom like the cecilia's in the wind " — They kissed on the water reflection
