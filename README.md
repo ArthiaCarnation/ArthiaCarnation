@@ -6,7 +6,7 @@
          <p align="center">
          <img width="700" alt="1000005108" src="https://github.com/user-attachments/assets/433b578b-8883-4051-bae9-724c5f582357" />
            <p align="center">
-                   <img width="300" alt="Screenshot_2026-06-06-20-53-56-298_com mobile legends" src="https://github.com/user-attachments/assets/5d72007d-188f-4158-9381-41f858450d0d" />
+                   <img width="500" alt="Screenshot_2026-06-06-20-53-56-298_com mobile legends" src="https://github.com/user-attachments/assets/5d72007d-188f-4158-9381-41f858450d0d" />
                  <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
                  <p align="center">
