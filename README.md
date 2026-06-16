@@ -4,7 +4,7 @@
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>
          <p align="center">
-         <img width="700" alt="1000005108" src="https://github.com/user-attachments/assets/433b578b-8883-4051-bae9-724c5f582357" />
+<img width="700" alt="1000005161" src="https://github.com/user-attachments/assets/363332ca-e824-4bc6-bf7d-46e48362be46" />
            <p align="center">
                    <img width="500" alt="Screenshot_2026-06-06-20-53-56-298_com mobile legends" src="https://github.com/user-attachments/assets/5d72007d-188f-4158-9381-41f858450d0d" />
                  <p align="center">
