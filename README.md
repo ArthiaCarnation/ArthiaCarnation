@@ -3,12 +3,8 @@
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ArthiasLore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>
- <p align="center">
-         <img width="600" alt="1000005341" src="https://github.com/user-attachments/assets/2e44665c-58ba-4eaa-90c8-69a77d5dae18" />
          <p align="center">
-<img width="700" alt="1000005161" src="https://github.com/user-attachments/assets/363332ca-e824-4bc6-bf7d-46e48362be46" />
-           <p align="center">
-                   <img width="500" alt="Screenshot_2026-06-06-20-53-56-298_com mobile legends" src="https://github.com/user-attachments/assets/5d72007d-188f-4158-9381-41f858450d0d" />
+                 <img width="700" alt="1000005740" src="https://github.com/user-attachments/assets/2ecda8f0-9b5c-4577-ac16-106cec13a217" />
                  <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
                  <p align="center">
