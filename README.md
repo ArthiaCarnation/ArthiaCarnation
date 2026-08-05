@@ -4,6 +4,8 @@
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>
          <p align="center">
+                 Guys please don't mistake me as Arthia I don't see myself as Arthia i feel weirded out when some people see me as arthia i get it she's more popular than my sona but i wont repeat myself a second time once you know my name (Chiiwara) I actually made arthia based on my type and i heavily kin venti before therefor I made Arthia appearance and whole personality as my preference 
+                     <p align="center">
                  <video src="https://github.com/user-attachments/assets/25c9d17a-34de-4bb9-b7b8-c33fd20ffbb8"> 
          <p align="center">
                  <img width="700" alt="1000005740" src="https://github.com/user-attachments/assets/2ecda8f0-9b5c-4577-ac16-106cec13a217" />
