@@ -6,7 +6,8 @@
                      <p align="center">
                  <video src="https://github.com/user-attachments/assets/25c9d17a-34de-4bb9-b7b8-c33fd20ffbb8"> 
          <p align="center">
-                 <img width="700" alt="1000005740" src="https://github.com/user-attachments/assets/2ecda8f0-9b5c-4577-ac16-106cec13a217" />
+<img width="800" alt="1000005930" src="https://github.com/user-attachments/assets/777b57cd-64b4-41d1-a27b-ca87e46f83ab" />
+<img width="800" alt="1000005929" src="https://github.com/user-attachments/assets/d8ba14dd-4c9a-4b41-b231-088baa2fcd14" />
                  <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
                  <p align="center">
