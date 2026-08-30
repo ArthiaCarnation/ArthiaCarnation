@@ -166,7 +166,7 @@ Venti’s grin grew quiet but sincere She’d seen right through him
                                    <p align="center">
                      Venthia 1 by Xeneless Venthia 2 by Erhlia Venthia 3 by Latjaevel Venthia 4 by Kyuari Venthia 5 by Keira Venthia 6 AE RITH Venthia 6 Pi Kou
                                  <p align="center">
-                 <img width="300" alt="1000004757" src="https://github.com/user-attachments/assets/b532bd6f-c953-4abd-834c-371b84002409" />
+                 <img width="400" alt="1000004757" src="https://github.com/user-attachments/assets/b532bd6f-c953-4abd-834c-371b84002409" />
          <p align="center">            
                                                          <p align="center">
                                 <img width="487" height="262" alt="Screenshot_12" src="https://github.com/user-attachments/assets/026ac43a-2b22-4049-a0d5-351adfc7caba" />
