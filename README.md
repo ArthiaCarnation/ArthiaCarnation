@@ -3,13 +3,6 @@
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ArthiasLore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://rentry.co/windlotus" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>
-          <p align="center">
- <img width="400" alt="Screenshot 2026-09-07 012038" src="https://github.com/user-attachments/assets/e4c914d9-5a8f-4a8f-b674-9c67b674a67b" />
-  <p align="center">
-                 <img width="400" alt="Screenshot_2026-09-07-12-17-45-997_jp ne ibis ibispaintx app" src="https://github.com/user-attachments/assets/b60e8272-5dc3-4c98-bdc0-f62d74f4d0d1" />
-           <p align="center">
-                   IM MAPPING HER HAIR OUT STOP
- <p align="center">
          <p align="center"> 
           4 big arts upcoming in October - November ( Venthia Anniversary , Arthia Splash Art , 2026 Venthia Illustration )
                      <p align="center">
