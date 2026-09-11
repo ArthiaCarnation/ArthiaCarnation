@@ -3,13 +3,6 @@
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ourpromiselore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://drive.google.com/drive/folders/1NZzrNNeBVdOyZfIBEYXZQ12AEawxclCP" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>
-         <p align="center"> 
-          4 big arts upcoming in October - November ( Venthia Anniversary , Arthia Splash Art , 2026 Venthia Illustration )
-                     <p align="center">
-                 <video src="https://github.com/user-attachments/assets/25c9d17a-34de-4bb9-b7b8-c33fd20ffbb8"> 
-         <p align="center">
-                 <img width="600" alt="1000005929" src="https://github.com/user-attachments/assets/93c69059-fcf8-4454-8685-3ea577af1f2a" />
-<img width="600" alt="1000005930" src="https://github.com/user-attachments/assets/fb4172f8-f6f4-4c49-bdb3-bb078389cffa" />
                  <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
                  <p align="center">
@@ -194,4 +187,6 @@ Venti’s grin grew quiet but sincere She’d seen right through him
                  <video src="https://github.com/user-attachments/assets/a6dccf39-44f0-4d9e-bc3c-e65985047bbe">
 <p align="center">
  <video src=https://github.com/user-attachments/assets/dee438c9-bbf4-45eb-927c-741d7bb092e4>
+        <p align="center">
+                 <video src="https://github.com/user-attachments/assets/25c9d17a-34de-4bb9-b7b8-c33fd20ffbb8"> 
 
