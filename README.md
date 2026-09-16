@@ -4,7 +4,7 @@
  <a href="https://drive.google.com/drive/folders/1NZzrNNeBVdOyZfIBEYXZQ12AEawxclCP" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>
          <p align="center">
-                 Arthia physical appearance needs to be studied cause what do you mean this woman is 7'1 and Jacked and married to someone who's totally the opposite of her from personality to physical appearance 😭😭
+                 how to be crushed by arthia biceps 👀👀👀👀👀
          <p align="center">
                  <img width="500" alt="1000005992" src="https://github.com/user-attachments/assets/5b4412ec-2282-45a1-8749-1e8d17aef9bb" />
          <p align="center">
