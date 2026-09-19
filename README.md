@@ -3,14 +3,12 @@
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ourpromiselore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://drive.google.com/drive/folders/1NZzrNNeBVdOyZfIBEYXZQ12AEawxclCP" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>
+             <p align="center">
+ <img width="600" height="960" alt="Messenger_creation_ADAC27A2-2FBE-4DC4-BEC6-C275CC4350A0" src="https://github.com/user-attachments/assets/ae53d7cb-9420-4d41-982e-f983517a51cb" />
          <p align="center">
                  how to be crushed by arthia biceps 👀👀👀👀👀
          <p align="center">
                  <img width="500" alt="1000005992" src="https://github.com/user-attachments/assets/5b4412ec-2282-45a1-8749-1e8d17aef9bb" />
-         <p align="center">
-                 GUYS OMGGG OMMGGGGGG I CANT THEY ARE SO CUTE
-           <p align="center">
-                   <img width="600" height="960" alt="1000025814" src="https://github.com/user-attachments/assets/84200f8c-c0d2-44b2-a808-88d24e8c45f7" />
                  <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
                  <p align="center">
