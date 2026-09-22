@@ -6,7 +6,7 @@
           <p align="center"> 
                  How it feels commissioning that one artist a million times
          <p align="center"> 
-                 <img width="460" height="1024" alt="Screenshot_2026-09-22-15-49-53-46_be80aec1db9a2b53c9d399db0c602181" src="https://github.com/user-attachments/assets/1588d7bd-40fe-4bc3-b2a1-6eff53994b9a" />
+                 <img width="200" alt="Screenshot_2026-09-22-15-49-53-46_be80aec1db9a2b53c9d399db0c602181" src="https://github.com/user-attachments/assets/1588d7bd-40fe-4bc3-b2a1-6eff53994b9a" />
              <p align="center">
  <img width="600" height="960" alt="Messenger_creation_ADAC27A2-2FBE-4DC4-BEC6-C275CC4350A0" src="https://github.com/user-attachments/assets/ae53d7cb-9420-4d41-982e-f983517a51cb" />
          <p align="center">
