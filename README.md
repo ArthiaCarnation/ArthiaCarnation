@@ -7,6 +7,10 @@
                  I forgot how to draw venti I'm not joking I give up ;_;
          <p align="center">
                  <img width="400" alt="1000006066" src="https://github.com/user-attachments/assets/2c417f10-039e-4d5d-aade-54220b576331" />
+                 <p align="center">
+                         wdym I draw this both and supposedly connected 😭
+                 <p align="center">
+                         <img width="400" alt="1000006068" src="https://github.com/user-attachments/assets/26b3a4fa-1a9b-4e12-83d2-27f4cb127d48" />
           <p align="center"> 
                  How it feels commissioning that one artist a million times
          <p align="center"> 
