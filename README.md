@@ -4,22 +4,8 @@
  <a href="https://drive.google.com/drive/folders/1NZzrNNeBVdOyZfIBEYXZQ12AEawxclCP" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>
           <p align="center">
-                  2400 PHP commission is making me go insane
-         <p align="center">
-                 I forgot how to draw venti I'm not joking I give up ;_;
-         <p align="center">
-                 <img width="500" alt="1000006066" src="https://github.com/user-attachments/assets/2c417f10-039e-4d5d-aade-54220b576331" />
-                 <p align="center">
-                         wdym I draw this both and supposedly connected 😭
-                 <p align="center">
-                         <img width="500" alt="1000006070" src="https://github.com/user-attachments/assets/e10b14b8-6653-488a-a5f3-ebce4cb21886" />
-          <p align="center"> 
-                 How it feels commissioning that one artist a million times
-         <p align="center"> 
-                 <img width="200" alt="Screenshot_2026-09-22-15-49-53-46_be80aec1db9a2b53c9d399db0c602181" src="https://github.com/user-attachments/assets/1588d7bd-40fe-4bc3-b2a1-6eff53994b9a" />
-             <p align="center">
- <img width="600" height="960" alt="Messenger_creation_ADAC27A2-2FBE-4DC4-BEC6-C275CC4350A0" src="https://github.com/user-attachments/assets/ae53d7cb-9420-4d41-982e-f983517a51cb" />
-                 <p align="center">
+                  GO CHECK <a href="https://github.com/FourWindborne" target="[M]" <strong> FOURWINDS </strong></a>
+ <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
                  <p align="center">
                  🍃🪷 " The wind carries many song, but mine will only find it's melody when you find your rest. Only then, will I bloom like the cecilia's in the wind " 
