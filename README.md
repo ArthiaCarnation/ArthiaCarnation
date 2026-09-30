@@ -5,7 +5,11 @@
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>
           <p align="center">
                   GO CHECK <a href="https://github.com/FourWindborne" target="[M]" <strong> FOURWINDS </strong></a>
+                  <p align="center">
+                          SHAME ON VENTHIA ANGST SHAME ON YOUUU 😡
  <p align="center">
+         <img width="200" alt="1000025911" src="https://github.com/user-attachments/assets/b3a91723-05db-464f-a030-acfd16687302" />
+         <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
                  <p align="center">
                  🍃🪷 " The wind carries many song, but mine will only find it's melody when you find your rest. Only then, will I bloom like the cecilia's in the wind " 
