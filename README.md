@@ -10,6 +10,9 @@
           <p align="center">
                   <img width="800" alt="Messenger_creation_044CE035-FC4D-45E6-AACE-173A1C6B3738" src="https://github.com/user-attachments/assets/f556d87b-28c2-46d8-b009-3eae66981cf0" />
                   <p align="center"> 
+<img width="500" alt="1000006256" src="https://github.com/user-attachments/assets/572dbd6d-4f0c-4ef2-9917-e018028ff892" />
+ <img width="500" alt="1000006165" src="https://github.com/user-attachments/assets/afc0c52f-57b0-472d-b016-732f236d8c88" />
+<img width="500" alt="1000006164" src="https://github.com/user-attachments/assets/e1aaa150-1bbd-4a38-8a94-97f409231226" />
          <p align="center">
                  the song is literally venthia Arthia is a goddess and venti is a bard bro 😭 THE SHIP REMINDS ME OF THEM SM
          <p align="center">
