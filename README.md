@@ -6,7 +6,11 @@
  <a href="https://drive.google.com/drive/folders/1NZzrNNeBVdOyZfIBEYXZQ12AEawxclCP" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>
             <p align="center">
-            i love it when your favorite comissioners starts considering you as a trusted friend thank you val will always love your arts 
+            i love it when your favorite commissioner starts considering you as a trusted friend thank you val will always love your arts 
+                 <p align="center">
+  <img width="600" height="960" alt="1000006257" src="https://github.com/user-attachments/assets/0917a4e3-ccf5-41cf-8778-9184c28c2d52" />                  
+                 <p align="center">
+                      <img width="400" alt="1000006254" src="https://github.com/user-attachments/assets/2263c31b-6bdc-4783-951d-430445d66e06" />
           <p align="center">
                   <img width="800" alt="Messenger_creation_044CE035-FC4D-45E6-AACE-173A1C6B3738" src="https://github.com/user-attachments/assets/f556d87b-28c2-46d8-b009-3eae66981cf0" />
                   <p align="center"> 
