@@ -8,7 +8,7 @@
             <p align="center">
             i love it when your favorite commissioner starts considering you as a trusted friend thank you val will always love your arts 
                  <p align="center">
-  <img width="600" height="960" alt="1000006257" src="https://github.com/user-attachments/assets/0917a4e3-ccf5-41cf-8778-9184c28c2d52" />                  
+  <img width="500" alt="1000006257" src="https://github.com/user-attachments/assets/0917a4e3-ccf5-41cf-8778-9184c28c2d52" />                  
                  <p align="center">
                       <img width="400" alt="1000006254" src="https://github.com/user-attachments/assets/2263c31b-6bdc-4783-951d-430445d66e06" />
           <p align="center">
