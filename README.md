@@ -10,7 +10,7 @@
                  <p align="center">
   <img width="500" alt="1000006257" src="https://github.com/user-attachments/assets/0917a4e3-ccf5-41cf-8778-9184c28c2d52" />                  
                  <p align="center">
-                      <img width="400" alt="1000006254" src="https://github.com/user-attachments/assets/2263c31b-6bdc-4783-951d-430445d66e06" />
+                      <img width="800" alt="1000006254" src="https://github.com/user-attachments/assets/2263c31b-6bdc-4783-951d-430445d66e06" />
           <p align="center">
                   <img width="800" alt="Messenger_creation_044CE035-FC4D-45E6-AACE-173A1C6B3738" src="https://github.com/user-attachments/assets/f556d87b-28c2-46d8-b009-3eae66981cf0" />
                   <p align="center"> 
