@@ -1,18 +1,14 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=fdcddf&style=flat-square&label=OurPromise)
 <p align="center"> 
-     ᴀʀᴛʜɪᴀ ᴄᴏꜱᴘʟᴀʏ ᴄᴏɴᴛɪɴᴜᴇꜱ ᴀᴛ ᴅᴇᴄᴇᴍʙᴇʀ !!
+ ​🇦​​🇷​​🇹​​🇭​​🇮​​🇦​ ​🇨​​🇴​​🇸​​🇵​​🇱​​🇦​​🇾​ ​🇨​​🇴​​🇳​​🇹​​🇮​​🇳​​🇺​​🇪​​🇸​ ​🇦​​🇹​ ​🇳​​🇴​​🇻​​🇪​​🇲​​🇧​​🇪​​🇷​ - ​🇲​​🇦​​🇷​​🇨​​🇭​
 <p align="center"> 
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ourpromiselore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://drive.google.com/drive/folders/1NZzrNNeBVdOyZfIBEYXZQ12AEawxclCP" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>
      <p align="center">
   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312ms4jxtdqzufcqz77w3zj72dn4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=e665b0&interchange=false&profanity=false&hide_remaster=false&bar_color=ff99df&bar_color_cover=true" ![spotify-github-profile]> 
-          <p align="center">
-               5'6 started working out since last summer + skincare a lot ( all this for arthia she kinda save me to overgrow my confidence now next year she will shine with me <3 ) 
-          <p align="center"> 
- <video src="https://github.com/user-attachments/assets/d87891cd-0428-43d7-8f86-f0c01e27ac0e">
                   <p align="center"> 
-                  Im not showing the spoiler...wait until nov 6 guys
+  COMING BACK ON NOV 6 !! ~
                   <p align="center"> 
 <img width="300" alt="1000006256" src="https://github.com/user-attachments/assets/572dbd6d-4f0c-4ef2-9917-e018028ff892" />
  <img width="300" alt="1000006165" src="https://github.com/user-attachments/assets/afc0c52f-57b0-472d-b016-732f236d8c88" />
