@@ -6,31 +6,13 @@
  <a href="https://drive.google.com/drive/folders/1NZzrNNeBVdOyZfIBEYXZQ12AEawxclCP" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>
      <p align="center">
-  <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312ms4jxtdqzufcqz77w3zj72dn4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=e665b0&interchange=false&profanity=false&hide_remaster=false&bar_color=ff99df&bar_color_cover=true" ![spotify-github-profile]> 
-            <p align="center">
-            i love it when your favorite commissioner starts considering you as a trusted friend thank you val i will always love your arts 
-                 <p align="center">
-  <img width="500" alt="1000006257" src="https://github.com/user-attachments/assets/0917a4e3-ccf5-41cf-8778-9184c28c2d52" />                  
-                 <p align="center">
-                      <img width="800" alt="1000006254" src="https://github.com/user-attachments/assets/2263c31b-6bdc-4783-951d-430445d66e06" />
-          <p align="center">
-                  <img width="800" alt="Messenger_creation_044CE035-FC4D-45E6-AACE-173A1C6B3738" src="https://github.com/user-attachments/assets/f556d87b-28c2-46d8-b009-3eae66981cf0" />
+  <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312ms4jxtdqzufcqz77w3zj72dn4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=e665b0&interchange=false&profanity=false&hide_remaster=false&bar_color=ff99df&bar_color_cover=true" ![spotify-github-profile]>        
+                  <p align="center"> 
+                  Im not showing the spoiler...wait until nov 6 guys
                   <p align="center"> 
 <img width="300" alt="1000006256" src="https://github.com/user-attachments/assets/572dbd6d-4f0c-4ef2-9917-e018028ff892" />
  <img width="300" alt="1000006165" src="https://github.com/user-attachments/assets/afc0c52f-57b0-472d-b016-732f236d8c88" />
 <img width="300" alt="1000006164" src="https://github.com/user-attachments/assets/e1aaa150-1bbd-4a38-8a94-97f409231226" />
-         <p align="center">
-                 the song is literally venthia Arthia is a goddess and venti is a bard bro 😭 THE SHIP REMINDS ME OF THEM SM
-         <p align="center">
-<video src="https://github.com/user-attachments/assets/2a09fc4f-3b56-4f95-a8c1-721b6f6dbeac">
-          <p align="center">
-                  GO CHECK <a href="https://github.com/FourWindborne" target="[M]" <strong> FOURWINDS </strong></a>
-<p align="center">
-Arthia gets called "Mary sue" without reading her lore and the meaning of Mary sue with being perfect at everything. While Arthia B1—B2 is purely character development She was young learning how to manage her kingdom. She was deceive and fell for lie that catch her into a death sentences as the Goddess of promise breaking the primacy orders will make her pay more prices if she refused but she didn't know that she will get the worse price at the end by erasing her from existence ( Ilyde the primacy wanted to kill Eutimia and Eutimia put her powers on to Arthia making Arthia first descendants before she became the kingdom Arthia ruled om B1 and When Ilyde wanted to kill Arthia through Eutimia so both of them will be forgotten) ( The reason why Ilyde wanted to kill Eutimia because Eutimia killed Ilyde and Elias took Ilyde place disguised himself as his wife and swore to make Eutimia pay ) After B1 and Arthia was resurrected she took justice by ending Elias disguised as Ilyde Elias was not one of the primordial blood he faked being a primacy when a primacy is only for primordials. Arthia ascended as Primacy and with that as punishment of letting a Fake Primacy get away with everything for years it created a trust system for everyone. Arthia's power is depends on her people beliefs and many more still resented Arthia yet she is still respected but a lot of people came to challenge her everyday due to the rules she created so she always has fights for her life as the new primacy it physically and mentally drains her. She also made bad decisions to resurrect those who challenge her and got killed instead of erasing them to get 'rid' of them reminds her a lot of the past guilt and trauma made her resurrect them with their memory erased so they could start a new life but if they got their memories back they will always come for revenge and Arthia has to do it again the cycle repeat and it builds up more. she keeps a lot of secrets from Venti and her children carrying all the burden as the true primacy               
-                  <p align="center">
-                          SHAME ON VENTHIA ANGST SHAME ON YOUUU 😡
- <p align="center">
-         <img width="200" alt="1000025911" src="https://github.com/user-attachments/assets/b3a91723-05db-464f-a030-acfd16687302" />
          <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
                  <p align="center">
