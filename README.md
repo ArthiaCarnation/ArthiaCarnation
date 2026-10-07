@@ -5,8 +5,10 @@
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ourpromiselore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://drive.google.com/drive/folders/1NZzrNNeBVdOyZfIBEYXZQ12AEawxclCP" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>
+             <p align="center">
+                  stop supporting problematic creators and expect to be treated normal supporting the creator behavior is making them continue their action be aware of yourselves know what's right and wrong dont be bais. I'm so tired people victimizing themselves towards their actions and those people who breaks their own boundaries and act like they didn't do anything the hypocrisy is insane how can you keep up a fake image while continuing doing the same problem speak up for yourselves if you continue being arrogant and prideful, an apology doesn't do anything actions does. We want accountability not words based on trying to save your image. I am not afraid of confrontation i know where i have my rights and i know where im wrong and i don't run away from it any excuse of that is being a coward to not face their mistakes.
             <p align="center">
-            i love it when your favorite commissioner starts considering you as a trusted friend thank you val will always love your arts 
+            i love it when your favorite commissioner starts considering you as a trusted friend thank you val i will always love your arts 
                  <p align="center">
   <img width="500" alt="1000006257" src="https://github.com/user-attachments/assets/0917a4e3-ccf5-41cf-8778-9184c28c2d52" />                  
                  <p align="center">
