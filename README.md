@@ -7,6 +7,8 @@
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>
      <p align="center">
   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312ms4jxtdqzufcqz77w3zj72dn4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=e665b0&interchange=false&profanity=false&hide_remaster=false&bar_color=ff99df&bar_color_cover=true" ![spotify-github-profile]> 
+       <p align="center">
+        <img width="600" alt="Screenshot 2026-10-08 014441" src="https://github.com/user-attachments/assets/9f7ececd-d134-42c2-ae06-1bb5d4d66a7f" />
  <p align="center"> 
   GUYS IM QUITING ROYAL HIGH HUHUHU MY ITEMS ^cries in money* I NEED TO PREORDER ARTHIA WIG 
                   <p align="center"> 
