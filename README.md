@@ -4,10 +4,18 @@
 <p align="center"> 
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ourpromiselore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://drive.google.com/drive/folders/1NZzrNNeBVdOyZfIBEYXZQ12AEawxclCP" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
-      <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>              
-     <p align="center">
+      <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>  
+          <p align="center">
   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312ms4jxtdqzufcqz77w3zj72dn4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=e665b0&interchange=false&profanity=false&hide_remaster=false&bar_color=ff99df&bar_color_cover=true" ![spotify-github-profile]> 
       <p align="center">
+         <div align="center">
+  <details>
+<summary>🍃🪷</summary>
+          <p align="center">
+FacialCare - Morning workout - BodyCare - Afternoon Gym / Pilates homeworkout - BodyCare - FacialCare - Night Mid Exercise  ( Repeat )
+                    <p align="center">
+                            Schedule depends during school and without school. I wanna share this as a support and journey to improve myself. Thank you for my loves who keep believing on me cause someday ill truly make my goal, mark my word until this day.
+                  <p align="center">
      LOCK THE FUCK IN. ARTHIA WIG IS FUCKING EXPENSIVE IM EXCITED
        <p align="center">
  <img width="400" alt="1000026029" src="https://github.com/user-attachments/assets/9fd95965-56e9-4e9b-b3f6-b64836bfd9c4" />
@@ -18,6 +26,7 @@
 <img width="300" alt="1000006256" src="https://github.com/user-attachments/assets/572dbd6d-4f0c-4ef2-9917-e018028ff892" />
  <img width="300" alt="1000006165" src="https://github.com/user-attachments/assets/afc0c52f-57b0-472d-b016-732f236d8c88" />
 <img width="300" alt="1000006164" src="https://github.com/user-attachments/assets/e1aaa150-1bbd-4a38-8a94-97f409231226" />
+                            </details>
          <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
                  <p align="center">
