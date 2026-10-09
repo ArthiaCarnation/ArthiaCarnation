@@ -8,10 +8,10 @@
      <p align="center">
   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312ms4jxtdqzufcqz77w3zj72dn4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=e665b0&interchange=false&profanity=false&hide_remaster=false&bar_color=ff99df&bar_color_cover=true" ![spotify-github-profile]> 
       <p align="center">
-       WAHAHHAHAHA EWAN JUSKO lOCK IN HANGGANG DECEMBER 
+       WAHAHHAHAHA MY GOD LOCK IN 😭😭
        <p align="center">
- <img width="1079" height="1547" alt="1000026029" src="https://github.com/user-attachments/assets/20cf4f60-2cc5-46c4-adb8-f4c46c8fc933" />
-<img width="1080" height="483" alt="1000026031" src="https://github.com/user-attachments/assets/35d25d31-155e-4b43-9bc5-e3a04056d97b" />
+ <img width="1079" height="1547" alt="1000026029" src="https://github.com/user-attachments/assets/9fd95965-56e9-4e9b-b3f6-b64836bfd9c4" />
+<img width="1080" height="494" alt="1000026033" src="https://github.com/user-attachments/assets/63d0fef6-814a-436a-a4e4-8038879bd669" />
         <p align="center">
         <img width="600" alt="Screenshot 2026-10-08 014441" src="https://github.com/user-attachments/assets/9f7ececd-d134-42c2-ae06-1bb5d4d66a7f" />
                   <p align="center"> 
