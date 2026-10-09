@@ -30,7 +30,7 @@ FacialCare - Morning workout - BodyCare - Afternoon Gym / Pilates homeworkout - 
          <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
                  <p align="center">
-                 🍃🪷 " The wind carries many song, but mine will only find it's melody when you find your rest. Only then, will I bloom like the cecilia's in the wind " 
+                 " The wind carries many song, but mine will only find it's melody when you find your rest. Only then, will I bloom like the cecilia's in the wind " 
                  <p align="center">
                          <img width="900" alt="1000004439" src="https://github.com/user-attachments/assets/e524a380-8e40-40d6-a30b-f87e70a0ea1f" />
                               <p align="center">
