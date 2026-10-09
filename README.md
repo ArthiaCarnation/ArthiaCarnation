@@ -10,8 +10,8 @@
       <p align="center">
        WAHAHHAHAHA MY GOD LOCK IN 😭😭
        <p align="center">
- <img width="1079" height="1547" alt="1000026029" src="https://github.com/user-attachments/assets/9fd95965-56e9-4e9b-b3f6-b64836bfd9c4" />
-<img width="1080" height="494" alt="1000026033" src="https://github.com/user-attachments/assets/63d0fef6-814a-436a-a4e4-8038879bd669" />
+ <img width="400" alt="1000026029" src="https://github.com/user-attachments/assets/9fd95965-56e9-4e9b-b3f6-b64836bfd9c4" />
+<img width="300" height="494" alt="1000026033" src="https://github.com/user-attachments/assets/63d0fef6-814a-436a-a4e4-8038879bd669" />
         <p align="center">
         <img width="600" alt="Screenshot 2026-10-08 014441" src="https://github.com/user-attachments/assets/9f7ececd-d134-42c2-ae06-1bb5d4d66a7f" />
                   <p align="center"> 
