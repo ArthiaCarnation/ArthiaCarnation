@@ -15,17 +15,13 @@
 FacialCare - Morning workout - BodyCare - Afternoon Gym / Pilates homeworkout - BodyCare - FacialCare - Night Mid Exercise  ( Repeat )
                     <p align="center">
                             Schedule depends during school and without school. I wanna share this as a support and journey to improve myself. Thank you for my loves who keep believing on me cause someday ill truly make my goal, mark my word until this day.
+                                <p align="center">
+                                        Progress : 
                   <p align="center">
      LOCK THE FUCK IN. ARTHIA WIG IS FUCKING EXPENSIVE IM EXCITED
        <p align="center">
  <img width="400" alt="1000026029" src="https://github.com/user-attachments/assets/9fd95965-56e9-4e9b-b3f6-b64836bfd9c4" />
 <img width="300" alt="1000026033" src="https://github.com/user-attachments/assets/63d0fef6-814a-436a-a4e4-8038879bd669" />
-        <p align="center">
-        <img width="600" alt="Screenshot 2026-10-08 014441" src="https://github.com/user-attachments/assets/9f7ececd-d134-42c2-ae06-1bb5d4d66a7f" />
-                  <p align="center"> 
-<img width="300" alt="1000006256" src="https://github.com/user-attachments/assets/572dbd6d-4f0c-4ef2-9917-e018028ff892" />
- <img width="300" alt="1000006165" src="https://github.com/user-attachments/assets/afc0c52f-57b0-472d-b016-732f236d8c88" />
-<img width="300" alt="1000006164" src="https://github.com/user-attachments/assets/e1aaa150-1bbd-4a38-8a94-97f409231226" />
                             </details>
          <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
