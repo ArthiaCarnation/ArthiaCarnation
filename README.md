@@ -12,20 +12,7 @@
   <details>
 <summary>🍃🪷</summary>
           <p align="center">
-FacialCare - Morning workout - BodyCare - Afternoon Gym / Pilates homeworkout - BodyCare - FacialCare - Night Mid Exercise  ( Repeat )
-                    <p align="center">
-                            Schedule depends during school and without school. I wanna share this as a support and journey to improve myself. Thank you for my loves who keep believing on me cause someday ill truly make my goal, mark my word until this day.
-                                <p align="center">
-                                        Progress : 
-                  <p align="center">
-     LOCK THE FUCK IN. ARTHIA WIG IS FUCKING EXPENSIVE IM EXCITED
-       <p align="center">
- <img width="400" alt="1000026029" src="https://github.com/user-attachments/assets/9fd95965-56e9-4e9b-b3f6-b64836bfd9c4" />
-<img width="300" alt="1000026033" src="https://github.com/user-attachments/assets/63d0fef6-814a-436a-a4e4-8038879bd669" />
-                 <p align="center">
-                         when your visibly taller than anyone and I WASNT EVEN WEARING HEELS HELPP
-                 <p align="center">
-                         <img width="800" alt="Untitled234_20261010123905" src="https://github.com/user-attachments/assets/676af023-8e4c-4b69-97ef-e9d9ca681afa" />
+by the end of November or less I would be able to start Arthia's wig~
                             </details>
          <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
