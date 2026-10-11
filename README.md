@@ -12,7 +12,7 @@
   <details>
 <summary>🍃🪷</summary>
           <p align="center">
-by the end of November or less I would be able to start Arthia's wig~
+by the end of November or less I would be able to start Arthia's wig~ I need to learn how to do Slavic Douyin make up:(
                             </details>
          <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
