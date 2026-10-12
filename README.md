@@ -12,7 +12,14 @@
   <details>
 <summary>🍃🪷</summary>
           <p align="center">
-by the end of November or less I would be able to start Arthia's wig~ I need to learn how to do Slavic doll make up:(
+ITS STARTING ARTHIA WIG!! 
+                <p align="center">
+                  <img width="417" height="640" alt="Screenshot_2026-10-12-17-21-25-48_be80aec1db9a2b53c9d399db0c602181" src="https://github.com/user-attachments/assets/cd1b74ec-7b47-4df8-a32f-cd16fe773e0d" />
+                   <p align="center">
+                           <img width="1024" height="758" alt="Messenger_creation_7BD6609C-7330-41A0-8798-CD30B52DA389" src="https://github.com/user-attachments/assets/c0a35231-2f86-42a6-b157-eab1d6d31419" />
+ <p align="center">
+         <img width="1024" height="511" alt="IMG_5116" src="https://github.com/user-attachments/assets/385d1863-e0d1-48ed-96ed-32797b2addf9" />
+
                             </details>
          <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
