@@ -12,7 +12,7 @@
   <details>
 <summary>🍃🪷</summary>
           <p align="center">
-ITS STARTING ARTHIA WIG!! VERY STRICT DIET CANT EAT POTATO CORNER 😭😭😭 I need a tone body 🤑
+ITS STARTING ARTHIA WIG!! VERY STRICT DIET My goal is having that tone body 👀👀
                 <p align="center">
                   <img width="417" height="640" alt="Screenshot_2026-10-12-17-21-25-48_be80aec1db9a2b53c9d399db0c602181" src="https://github.com/user-attachments/assets/cd1b74ec-7b47-4df8-a32f-cd16fe773e0d" />
                    <p align="center">
