@@ -12,7 +12,13 @@
   <details>
 <summary>🍃🪷</summary>
           <p align="center">
-ITS STARTING ARTHIA WIG!! VERY STRICT DIET My goal is having that tone body 👀👀
+DISCIPLINE AND CONSITENCY 
+                    <p align="center">
+                           Workout : Mon - fri ( Pilates 1h-30m ) , Sat ( Cardio GYM treadmill ) , Sunday ( Rest / Homework ) 
+                               <p align="center">
+Eating : Protein in the morning ( eggs or bread or both ) , Lunch ( Full meal ) , Night ( Less Rice but a Protein meal )   
+                             <p align="center">
+                  1 week : my body feels more of adapting on the routine it burns and hurts alot but i felt my whole body less bloated i lessen 1 kg due to sweat and water out of my body 
                 <p align="center">
                   <img width="417" height="640" alt="Screenshot_2026-10-12-17-21-25-48_be80aec1db9a2b53c9d399db0c602181" src="https://github.com/user-attachments/assets/cd1b74ec-7b47-4df8-a32f-cd16fe773e0d" />
                    <p align="center">
