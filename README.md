@@ -1,6 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=fdcddf&style=flat-square&label=OurPromise)
 <p align="center"> 
-3890 / 5000 + 7000 
+4000 / 5000 + 7000 
 <p align="center"> 
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ourpromiselore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://drive.google.com/drive/folders/1NZzrNNeBVdOyZfIBEYXZQ12AEawxclCP" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
@@ -19,7 +19,7 @@ DOCUMENTATION : DISCIPLINE AND CONSITENCY
 Eating : Protein in the morning ( eggs or bread sour dough or both ) , Lunch ( Full meal ) , Night ( Less Rice but a Protein meal )   
                              <p align="center"> 
                                           <p align="center">
-                                 Notes : Always drink water ,  Fiberpacks everynight , Probiotics and prebiotics foods ( Banana , Yogurt i always buy them in lunch or recess , Kimchi and onions and garlic ) i highly DO NOT recommend Daily plus, i tried it before and it makes me sick it is mostly recommended with people who medically needs it, lessen portion when eating snacks/sugar do not go overboard for me i medically cant eat chocolate , Soft drinks and high sugar which advantages my routine
+                                 Notes : Always drink water(warm) ,  Fiberpacks everynight , Probiotics and prebiotics foods ( Banana ,  Nestle yogurt i always buy them in lunch or recess and kimchi ) i highly DO NOT recommend trying out Daily plus without a medical evidence, lessen portion when eating snacks/sugar do not go overboard 
                                                        <p align="center">
                   1 week : my body feels more of adapting on the routine it burns and hurts alot but i felt my whole body less bloated i lessen 1 kg due to sweat and water out of my body
                 <p align="center">
