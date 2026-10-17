@@ -19,7 +19,7 @@ DOCUMENTATION : DISCIPLINE AND CONSITENCY
 Eating : Protein in the morning ( eggs or bread sour dough or both ) , Lunch ( Full meal ) , Night ( Less Rice but a Protein meal )   
                              <p align="center"> 
                                           <p align="center">
-                                 Notes : Always drink water(warm) ,  Fiberpacks everynight , Probiotics and prebiotics foods ( Banana ,  Nestle yogurt i always buy them in lunch or recess and kimchi ) i highly DO NOT recommend trying out Daily plus without a medical evidence, lessen portion when eating snacks/sugar do not go overboard 
+                                 Notes : Always drink water(warm) ,  Fiberpacks everynight , Probiotics and prebiotics foods ( Banana ,  Nestle yogurt i always buy them in lunch or recess and kimchi ) i highly DO NOT recommend trying out Daily plus without a medical evidence, lessen portion when eating snacks/sugar do not go overboard i only take once a day or once a week depends on my mood and cravings 
                                                        <p align="center">
                   1 week : my body feels more of adapting on the routine it burns and hurts alot but i felt my whole body less bloated i lessen 1 kg due to sweat and water out of my body
                 <p align="center">
