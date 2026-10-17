@@ -19,10 +19,14 @@ DOCUMENTATION : DISCIPLINE AND CONSITENCY
 Eating : Protein in the morning ( eggs or bread sour dough or both ) , Lunch ( Full meal ) , Night ( Less Rice but a Protein meal )   
                              <p align="center"> 
                                           <p align="center">
-                                 Notes : Always drink water(warm) ,  Fiberpacks everynight , Probiotics and prebiotics foods ( Banana ,  Nestle yogurt i always buy them in lunch or recess and kimchi ) i highly DO NOT recommend trying out Daily plus without a medical evidence, lessen portion when eating snacks/sugar do not go overboard i only take once a day or once a week depends on my mood and cravings 
+                                 Notes : Always drink water(warm) ,  Fiberpacks everynight , Probiotics and prebiotics foods ( Banana ,  Nestle yogurt i always buy them in lunch or recess and kimchi ), lessen portion when eating snacks/sugar do not go overboard i only take once a day or once a week depends on my mood and cravings 
                                                        <p align="center">
                   1 week : my body feels more of adapting on the routine it burns and hurts alot but i felt my whole body less bloated i lessen 1 kg due to sweat and water out of my body
-                <p align="center">
+                                                                <p align="center">
+                                                                FacialCare (Dry Skin) : EveryMorning/Night always start with splashing cold water (SPLASH NOT DIP) reduce puffiness, Wash hands with soap and face before hydration cleanser, Gua Sha 3-5ms after applying serum and moisturizer, Sunscreen then powder 
+                                                                          <p align="center">
+                                               1 week : I always have been doing skincare with serum only but with applied routine my skin is more hydrated as someone who has dry skin my skin barrier is damage yet i noticed my dark spots are brightening and with moisturizer                                   
+          <p align="center">
                   <img width="417" height="640" alt="Screenshot_2026-10-12-17-21-25-48_be80aec1db9a2b53c9d399db0c602181" src="https://github.com/user-attachments/assets/cd1b74ec-7b47-4df8-a32f-cd16fe773e0d" />
                    <p align="center">
                            <img width="1024" height="758" alt="Messenger_creation_7BD6609C-7330-41A0-8798-CD30B52DA389" src="https://github.com/user-attachments/assets/c0a35231-2f86-42a6-b157-eab1d6d31419" />
