@@ -24,6 +24,8 @@ Eating : Protein in the morning ( eggs or bread sour dough or both ) , Lunch ( F
                   1 week : my body feels more of adapting on the routine it burns and hurts alot but i felt my whole body less bloated i lessen 1 kg due to sweat and water out of my body
                                                                   <p align="center">
                                                                           2 Week : I lost another 1kg which is the goal every week since our body takes time to adapt i actually went to the gym this time to do cardio i felt very energized 
+                                                                                 <p align="center">
+                                                                                         THOUGHTS : Its only been 2 weeks I KNOW BUT WHY AM I GAINING WEIGHT EVERY MONDAY THEN LOSING IT ALL ON SATURDAY im fricking crying ever single time bro but its normal....i guess also i cant this week because of reasons hahaa...
                                                                 <p align="center">
                                                                 FacialCare (Dry Skin) : EveryMorning/Night always start with splashing cold water (SPLASH NOT DIP) reduce puffiness, Wash hands with soap and face before hydration cleanser, Gua Sha 3-5ms after applying serum and moisturizer, Sunscreen then powder 
                                                                           <p align="center">
