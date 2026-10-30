@@ -1,6 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=fdcddf&style=flat-square&label=OurPromise)
 <p align="center"> 
-5000 / 5000 + 7000
+5700 / 5000 + 7000
 <p align="center"> 
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ourpromiselore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://drive.google.com/drive/folders/1NZzrNNeBVdOyZfIBEYXZQ12AEawxclCP" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
@@ -8,6 +8,8 @@
           <p align="center">
   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312ms4jxtdqzufcqz77w3zj72dn4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=e665b0&interchange=false&profanity=false&hide_remaster=false&bar_color=ff99df&bar_color_cover=true" ![spotify-github-profile]> 
       <p align="center">
+              Ima make it a canon instead of a head canon for Arthia lore cause i imagine her for a long time using her actual body muscles to fight in Teyvat she forbidden herself to use any powers from other worlds ever since she became the Primacy it might affect Priscusmal ( her world ) she found out that there a rare but possible chance it might affect her as the Primacy and her people especially when something is connected to Celestial / Gods in Teyvat. Im making this a canon because it's also a high advantage for her when she loses her powers she can rely on her natural strength #wifedat (also because she has a PTSD about her dying the thought of being weak triggers her a lot from what had happened) She's just a natural God using her physical natural muscles in Teyvat yet being 7'1 or 7'5 with heels Takes a lot advantage to take down enemies, She accompanies Venti on whatever he does and even does commission time by time to pay off venti drinking habits she doesn't really mind him drinking since it makes venti wind off and happy from their massive size difference its easier for her to pick venti up and take care of him ( mind you she only goes to teyvat and do these stuff for each 500 years ) 
+                      <p align="center">
          <div align="center">
   <details>
 <summary>🍃🪷</summary>
