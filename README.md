@@ -10,8 +10,8 @@
               <p align="center">
                 Miguel O'hara (Arthias short hairded) x Lyla (AI Venti) 🤫🤫 I  LOVE HOW I DID THEM mind the hands i cant do the hands shhh
                          <p align="center">
-                          <img width="900" alt="1000006493" src="https://github.com/user-attachments/assets/d2c12f0a-3d71-46d7-a6f0-e9d4d669d8ff" />
-                 <p align="center">
+                          <img width="900" alt="1000006506" src="https://github.com/user-attachments/assets/360acb35-995c-4a3a-b917-7b930c856454" />
+                          <p align="center">
               Ima make it a canon instead of a head canon for Arthia lore cause i imagine her for a long time using her actual body to fight in Teyvat she forbid herself to use any powers from other worlds ever since she became the Primacy it might affect Priscusmal ( her world ) she found out that there a rare but possible chance it might affect her as the Primacy and her people especially when something is connected to Celestial / Gods. Im making this a canon because it's also a high advantage for her when she loses her powers she can rely on her natural strength #wifedat (also because she has a PTSD about her dying the thought of being weak triggers her a lot from what had happened) Being 7'1 or 7'5 with heels Takes a lot advantage to take down enemies. She accompanies Venti on whatever he does and even does commission time by time to pay off venti drinking habits she doesn't really mind him drinking since it makes venti wind off and happy, From their massive size difference its easier for her to pick venti up and take care of him ( mind you she only goes to teyvat and do these stuff for each 500 years ) She has 9 inch finger basically she could grab venti entire face HELP her and varka would arm wrestling A LOT in the tavern whenever she comes by
                       <p align="center">
          <div align="center">
