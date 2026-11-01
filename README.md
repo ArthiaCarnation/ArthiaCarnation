@@ -10,7 +10,7 @@
               <p align="center">
                 Miguel O'hara (Arthias short hairded) x Lyla (AI Venti) 🤫🤫 I  LOVE HOW I DID THEM mind the hands i cant do the hands shhh
                          <p align="center">
-                          <img width="600" alt="bHSNxQGO" src="https://github.com/user-attachments/assets/c0d3b1b4-c305-437a-9d53-3f5d9052e56f" />
+                          <img width="900" alt="bHSNxQGO" src="https://github.com/user-attachments/assets/c0d3b1b4-c305-437a-9d53-3f5d9052e56f" />
       <p align="center">
               
                  <p align="center">
