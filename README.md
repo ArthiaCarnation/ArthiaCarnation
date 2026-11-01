@@ -7,8 +7,12 @@
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>  
           <p align="center">
   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312ms4jxtdqzufcqz77w3zj72dn4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=e665b0&interchange=false&profanity=false&hide_remaster=false&bar_color=ff99df&bar_color_cover=true" ![spotify-github-profile]> 
+              <p align="center">
+                Miguel O'hara (Arthias short hairded) x Lyla (AI Venti) 🤫🤫 I  LOVE HOW I DID THEM mind the hands i cant do the hands shhh
+                         <p align="center">
+                          <img width="600" alt="bHSNxQGO" src="https://github.com/user-attachments/assets/c0d3b1b4-c305-437a-9d53-3f5d9052e56f" />
       <p align="center">
-              guys what if Miguel O'hara (Arthias short hairded) x Lyla (AI Venti) 🤫🤫
+              
                  <p align="center">
               Ima make it a canon instead of a head canon for Arthia lore cause i imagine her for a long time using her actual body to fight in Teyvat she forbid herself to use any powers from other worlds ever since she became the Primacy it might affect Priscusmal ( her world ) she found out that there a rare but possible chance it might affect her as the Primacy and her people especially when something is connected to Celestial / Gods. Im making this a canon because it's also a high advantage for her when she loses her powers she can rely on her natural strength #wifedat (also because she has a PTSD about her dying the thought of being weak triggers her a lot from what had happened) Being 7'1 or 7'5 with heels Takes a lot advantage to take down enemies. She accompanies Venti on whatever he does and even does commission time by time to pay off venti drinking habits she doesn't really mind him drinking since it makes venti wind off and happy, From their massive size difference its easier for her to pick venti up and take care of him ( mind you she only goes to teyvat and do these stuff for each 500 years ) She has 9 inch finger basically she could grab venti entire face HELP her and varka would arm wrestling A LOT in the tavern whenever she comes by
                       <p align="center">
