@@ -9,6 +9,8 @@
   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312ms4jxtdqzufcqz77w3zj72dn4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=e665b0&interchange=false&profanity=false&hide_remaster=false&bar_color=ff99df&bar_color_cover=true" ![spotify-github-profile]> 
               <p align="center">
                 Miguel O'hara (Arthias short hairded) x Lyla (AI Venti) 🤫🤫 I  LOVE HOW I DID THEM mind the hands i cant do the hands shhh
+                      <p align="center">
+           <img width="300 alt="1000006543" src="https://github.com/user-attachments/assets/d4695a0c-d7a5-4edd-bee8-04fb5c93c8be" />              
                          <p align="center">
                           <img width="900" alt="1000006506" src="https://github.com/user-attachments/assets/360acb35-995c-4a3a-b917-7b930c856454" />
                           <p align="center">
