@@ -37,13 +37,13 @@ Eating : Protein in the morning ( eggs or bread sour dough or both ) , Lunch ( F
                           <p align="center">
                                   Five years since our promise has began — Art by Val 
                           <p align="center">     
-                                  <img width="400" alt="1000006601" src="https://github.com/user-attachments/assets/adb39c34-1bec-4c51-9e20-89e0825e8b63" />
+                                  <img width="500" alt="1000006601" src="https://github.com/user-attachments/assets/adb39c34-1bec-4c51-9e20-89e0825e8b63" />
 <p align="center">
       Arthia O'Hara x AI Venti
                       <p align="center">
-           <img width="200 alt="1000006543" src="https://github.com/user-attachments/assets/d4695a0c-d7a5-4edd-bee8-04fb5c93c8be" />              
+           <img width="300 alt="1000006543" src="https://github.com/user-attachments/assets/d4695a0c-d7a5-4edd-bee8-04fb5c93c8be" />              
                          <p align="center">
-                          <img width="400" alt="1000006545" src="https://github.com/user-attachments/assets/88e758c6-c756-4f9b-bc7d-6c887847e6d9" />
+                          <img width="600" alt="1000006545" src="https://github.com/user-attachments/assets/88e758c6-c756-4f9b-bc7d-6c887847e6d9" />
                       <p align="center">
          <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
