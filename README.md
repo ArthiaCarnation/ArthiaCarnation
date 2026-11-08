@@ -37,15 +37,13 @@ Eating : Protein in the morning ( eggs or bread sour dough or both ) , Lunch ( F
                           <p align="center">
                                   Five years since our promise has began — Art by Val 
                           <p align="center">     
-                                  <img width="500" alt="1000006601" src="https://github.com/user-attachments/assets/adb39c34-1bec-4c51-9e20-89e0825e8b63" />
+                                  <img width="400" alt="1000006601" src="https://github.com/user-attachments/assets/adb39c34-1bec-4c51-9e20-89e0825e8b63" />
 <p align="center">
-        <img width="400" alt="1000006598" src="https://github.com/user-attachments/assets/12c5c863-33dd-4424-9db2-d71e6d685cdd" />
+      Arthia O'Hara x AI Venti
                       <p align="center">
-           <img width="300 alt="1000006543" src="https://github.com/user-attachments/assets/d4695a0c-d7a5-4edd-bee8-04fb5c93c8be" />              
+           <img width="200 alt="1000006543" src="https://github.com/user-attachments/assets/d4695a0c-d7a5-4edd-bee8-04fb5c93c8be" />              
                          <p align="center">
-                          <img width="900" alt="1000006545" src="https://github.com/user-attachments/assets/88e758c6-c756-4f9b-bc7d-6c887847e6d9" />
-                          <p align="center">
-              Ima make it a canon instead of a head canon for Arthia lore cause i imagine her for a long time using her actual body to fight in Teyvat she forbid herself to use any powers from other worlds ever since she became the Primacy it might affect Priscusmal ( her world ) she found out that there a rare but possible chance it might affect her as the Primacy and her people especially when something is connected to Celestial / Gods. Im making this a canon because it's also a high advantage for her when she loses her powers she can rely on her natural strength #wifedat (also because she has a PTSD about her dying the thought of being weak triggers her a lot from what had happened) Being 7'1 or 7'5 with heels Takes a lot advantage to take down enemies. She accompanies Venti on whatever he does and even does commission time by time to pay off venti drinking habits she doesn't really mind him drinking since it makes venti wind off and happy, From their massive size difference its easier for her to pick venti up and take care of him ( mind you she only goes to teyvat and do these stuff for each 500 years ) She has 9 inch finger basically she could grab venti entire face HELP her and varka would arm wrestling A LOT in the tavern whenever she comes by
+                          <img width="400" alt="1000006545" src="https://github.com/user-attachments/assets/88e758c6-c756-4f9b-bc7d-6c887847e6d9" />
                       <p align="center">
          <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
