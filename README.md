@@ -180,8 +180,6 @@ Venti’s grin grew quiet but sincere She’d seen right through him
  <img width="208" src="https://github.com/user-attachments/assets/395d14a8-627e-4e04-8971-181a06ba6005" alt=![pony-town-🍎-sit-blinking-name-4x (1)]>
             <p align="center">
           <img width="400" src="https://github.com/user-attachments/assets/757a3754-992d-4df5-bde7-150c3cb90457" alt=![1000927836]>
-            <p align="center">
-                Venthia Pixel by Kao , SunsetLemonade/Namecard by Dwayneartz Venti Icon  by Chura Venti pony by Miko , Venthia by Vether , Arthia Emote by Keira
                   <p align="center">
                         <img width="300" src="https://github.com/user-attachments/assets/c9684a36-f64d-4dbc-aaa6-6a917e9e35a6" alt=![1000925575]>
 <p align="center">
@@ -200,10 +198,8 @@ Venti’s grin grew quiet but sincere She’d seen right through him
               <img width="400" src="https://github.com/user-attachments/assets/35432c07-b908-4346-8f3d-3e7e685ae1f0" alt=![1000935713]>
                                  <p align="center">
                  <img width="500" alt="1000004134" src="https://github.com/user-attachments/assets/f94caa1b-e315-455f-9788-8f7af9855264" />
-                                   <p align="center">
-                     Venthia 1 by Xeneless Venthia 2 by Erhlia Venthia 3 by Latjaevel Venthia 4 by Kyuari Venthia 5 by Keira Venthia 6 AE RITH Venthia 6 Pi Kou
                                  <p align="center">
-                 <img width="400" alt="1000004757" src="https://github.com/user-attachments/assets/b532bd6f-c953-4abd-834c-371b84002409" />
+                 <img width="600" alt="1000004757" src="https://github.com/user-attachments/assets/b532bd6f-c953-4abd-834c-371b84002409" />
          <p align="center">            
                                                          <p align="center">
                                 <img width="487" height="262" alt="Screenshot_12" src="https://github.com/user-attachments/assets/026ac43a-2b22-4049-a0d5-351adfc7caba" />
