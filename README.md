@@ -16,7 +16,7 @@
                           <p align="center">
                                   Five years since our promise has began — Art by Val 
                           <p align="center">     
-                                  <img width="900" alt="1000006601" src="https://github.com/user-attachments/assets/adb39c34-1bec-4c51-9e20-89e0825e8b63" />
+                                  <img width="500" alt="1000006601" src="https://github.com/user-attachments/assets/adb39c34-1bec-4c51-9e20-89e0825e8b63" />
 
 <p align="center">
         <img width="400" alt="1000006598" src="https://github.com/user-attachments/assets/12c5c863-33dd-4424-9db2-d71e6d685cdd" />
