@@ -7,29 +7,7 @@
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>  
           <p align="center">
   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312ms4jxtdqzufcqz77w3zj72dn4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=e665b0&interchange=false&profanity=false&hide_remaster=false&bar_color=ff99df&bar_color_cover=true" ![spotify-github-profile]> 
-                  <p align="center">
-                          Venthia Anniversary 11 / 06 / 26
-                  <p align="center">
-                          " Come , my goddess! Our four windborne have set the stage for us. " — Art by Xingzhu 
-                  <p align="center">
-                <img width="3792" height="1779" alt="1000006596" src="https://github.com/user-attachments/assets/558b5b90-06af-442d-bc24-b21f9247a195" />
-                          <p align="center">
-                                  Five years since our promise has began — Art by Val 
-                          <p align="center">     
-                                  <img width="500" alt="1000006601" src="https://github.com/user-attachments/assets/adb39c34-1bec-4c51-9e20-89e0825e8b63" />
-
-<p align="center">
-        <img width="400" alt="1000006598" src="https://github.com/user-attachments/assets/12c5c863-33dd-4424-9db2-d71e6d685cdd" />
-              <p align="center">
-                Miguel O'hara (Arthias short hairded) x Lyla (AI Venti) 🤫🤫 I  LOVE HOW I DID THEM mind the hands i cant do the hands shhh
-                      <p align="center">
-           <img width="300 alt="1000006543" src="https://github.com/user-attachments/assets/d4695a0c-d7a5-4edd-bee8-04fb5c93c8be" />              
-                         <p align="center">
-                          <img width="900" alt="1000006545" src="https://github.com/user-attachments/assets/88e758c6-c756-4f9b-bc7d-6c887847e6d9" />
-                          <p align="center">
-              Ima make it a canon instead of a head canon for Arthia lore cause i imagine her for a long time using her actual body to fight in Teyvat she forbid herself to use any powers from other worlds ever since she became the Primacy it might affect Priscusmal ( her world ) she found out that there a rare but possible chance it might affect her as the Primacy and her people especially when something is connected to Celestial / Gods. Im making this a canon because it's also a high advantage for her when she loses her powers she can rely on her natural strength #wifedat (also because she has a PTSD about her dying the thought of being weak triggers her a lot from what had happened) Being 7'1 or 7'5 with heels Takes a lot advantage to take down enemies. She accompanies Venti on whatever he does and even does commission time by time to pay off venti drinking habits she doesn't really mind him drinking since it makes venti wind off and happy, From their massive size difference its easier for her to pick venti up and take care of him ( mind you she only goes to teyvat and do these stuff for each 500 years ) She has 9 inch finger basically she could grab venti entire face HELP her and varka would arm wrestling A LOT in the tavern whenever she comes by
-                      <p align="center">
-         <div align="center">
+                           <div align="center">
   <details>
 <summary>🍃🪷</summary>
           <p align="center">
@@ -47,8 +25,30 @@ Eating : Protein in the morning ( eggs or bread sour dough or both ) , Lunch ( F
                                                                           2 Week : I lost another 1kg which is the goal every week since our body takes time to adapt i actually went to the gym this time to do cardio i felt very energized 
                                                                                  <p align="center">
                                                                                          3 Week: Okay so I did not workout this week because I got into a bad flu but I did work out right now since it was Saturday so I lost another 1kg 🥹
+                                                                                          <p align="center">
+                                                                                                  4 Week: im seeing the changes in my body heh i lost another 1kg
  <p align="center">
          <img width="1024" height="511" alt="IMG_5116" src="https://github.com/user-attachments/assets/385d1863-e0d1-48ed-96ed-32797b2addf9" />
+                  <p align="center">
+                          Venthia Anniversary 11 / 06 / 26
+                  <p align="center">
+                          " Come , my goddess! Our four windborne have set the stage for us. " — Art by Xingzhu 
+                  <p align="center">
+                <img width="3792" height="1779" alt="1000006596" src="https://github.com/user-attachments/assets/558b5b90-06af-442d-bc24-b21f9247a195" />
+                          <p align="center">
+                                  Five years since our promise has began — Art by Val 
+                          <p align="center">     
+                                  <img width="500" alt="1000006601" src="https://github.com/user-attachments/assets/adb39c34-1bec-4c51-9e20-89e0825e8b63" />
+
+<p align="center">
+        <img width="400" alt="1000006598" src="https://github.com/user-attachments/assets/12c5c863-33dd-4424-9db2-d71e6d685cdd" />
+                      <p align="center">
+           <img width="300 alt="1000006543" src="https://github.com/user-attachments/assets/d4695a0c-d7a5-4edd-bee8-04fb5c93c8be" />              
+                         <p align="center">
+                          <img width="900" alt="1000006545" src="https://github.com/user-attachments/assets/88e758c6-c756-4f9b-bc7d-6c887847e6d9" />
+                          <p align="center">
+              Ima make it a canon instead of a head canon for Arthia lore cause i imagine her for a long time using her actual body to fight in Teyvat she forbid herself to use any powers from other worlds ever since she became the Primacy it might affect Priscusmal ( her world ) she found out that there a rare but possible chance it might affect her as the Primacy and her people especially when something is connected to Celestial / Gods. Im making this a canon because it's also a high advantage for her when she loses her powers she can rely on her natural strength #wifedat (also because she has a PTSD about her dying the thought of being weak triggers her a lot from what had happened) Being 7'1 or 7'5 with heels Takes a lot advantage to take down enemies. She accompanies Venti on whatever he does and even does commission time by time to pay off venti drinking habits she doesn't really mind him drinking since it makes venti wind off and happy, From their massive size difference its easier for her to pick venti up and take care of him ( mind you she only goes to teyvat and do these stuff for each 500 years ) She has 9 inch finger basically she could grab venti entire face HELP her and varka would arm wrestling A LOT in the tavern whenever she comes by
+                      <p align="center">
                             </details>
          <p align="center">
                  " The Goddess Sanctuary " ART BY — @uzziahkarl 
