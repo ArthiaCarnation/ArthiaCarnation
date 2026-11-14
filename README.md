@@ -1,12 +1,24 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=fdcddf&style=flat-square&label=OurPromise)
 <p align="center"> 
-6700 / 5000 + 7000
+7000 / 5000 + 7000
 <p align="center"> 
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ourpromiselore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://drive.google.com/drive/folders/1NZzrNNeBVdOyZfIBEYXZQ12AEawxclCP" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>  
           <p align="center">
   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312ms4jxtdqzufcqz77w3zj72dn4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=e665b0&interchange=false&profanity=false&hide_remaster=false&bar_color=ff99df&bar_color_cover=true" ![spotify-github-profile]> 
+                  <p align="center">
+                          PLSSS IM SO SCARED I DONT HAVE ARTHIA'S BACK AND SIDE IM CRYING I NEED TO LOCK THE FFFF IN  
+                  <p align="center">
+     <img width="300" alt="1000006799" src="https://github.com/user-attachments/assets/0722a927-9efe-4d4d-8c18-866efcd33ee9" />             
+                  <p align="center">
+                          <img width="600" alt="1000006781" src="https://github.com/user-attachments/assets/15fc76ba-ea36-4833-b703-f5a8512e00b0" />
+<img width="400" alt="1000006779" src="https://github.com/user-attachments/assets/161a5daf-321c-4982-90d6-2f61fdbc269a" />
+<img width="400" alt="1000006778" src="https://github.com/user-attachments/assets/b5cf6c5e-6dcb-460e-ae27-c8e23c5eb19f" />
+<img width="400" alt="1000006796" src="https://github.com/user-attachments/assets/2d96ba86-4be0-4e50-9e07-6bfa1fb63088" />
+<img width="400" alt="1000006797" src="https://github.com/user-attachments/assets/70434228-e191-41f0-9556-b15de5545ae2" />
+<img width="400" alt="1000006798" src="https://github.com/user-attachments/assets/5dfd4fd8-17e9-4f49-a34a-3d443eb8af7d" />
+                          <p align="center">
                            <div align="center">
   <details>
 <summary>🍃🪷</summary>
