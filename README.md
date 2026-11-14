@@ -8,9 +8,10 @@
           <p align="center">
   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312ms4jxtdqzufcqz77w3zj72dn4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=e665b0&interchange=false&profanity=false&hide_remaster=false&bar_color=ff99df&bar_color_cover=true" ![spotify-github-profile]> 
                   <p align="center">
-                          PLSSS IM SO SCARED I DONT HAVE ARTHIA'S BACK AND SIDE IM CRYING I NEED TO LOCK THE FFFF IN  
+                          PLSSS IM SO SCARED I DONT HAVE ARTHIA'S BACK AND SIDE IM CRYING I NEED TO LOCK THE FFFF IN  also the wig arrive the styling is on December will probably arrive at January Riri wig bakery~
                   <p align="center">
-     <img width="300" alt="1000006799" src="https://github.com/user-attachments/assets/0722a927-9efe-4d4d-8c18-866efcd33ee9" />             
+     <img width="300" alt="1000006799" src="https://github.com/user-attachments/assets/0722a927-9efe-4d4d-8c18-866efcd33ee9" />        
+                          <img width="500" alt="1000006801" src="https://github.com/user-attachments/assets/313ab3ef-a0ac-40b5-90ec-b4748ee08d91" />
                   <p align="center">
                           <img width="600" alt="1000006781" src="https://github.com/user-attachments/assets/15fc76ba-ea36-4833-b703-f5a8512e00b0" />
 <img width="400" alt="1000006779" src="https://github.com/user-attachments/assets/161a5daf-321c-4982-90d6-2f61fdbc269a" />
