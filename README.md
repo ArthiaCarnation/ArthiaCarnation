@@ -40,6 +40,8 @@ Eating : Protein in the morning ( eggs or bread sour dough or both ) , Lunch ( F
                                                                                          3 Week: Okay so I did not workout this week because I got into a bad flu but I did work out right now since it was Saturday so I lost another 1kg 🥹
                                                                                           <p align="center">
                                                                                                   4 Week: im seeing the changes in my body heh i lost another 1kg
+                                                                                                  <align="center">
+   5 week: My mom bought me a manual treadmill so I would have to go to the gym I'm so happy I worked this Saturday and did my workout in the afternoon my body hurts tho                                                                                     
          </details>           
           <p align="center">
                           Venthia Anniversary 11 / 06 / 26
