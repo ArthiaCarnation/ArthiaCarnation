@@ -1,6 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=fdcddf&style=flat-square&label=OurPromise)
 <p align="center"> 
-7000 / 5000 + 7000 
+7000 / 5000 + 7500 
 <p align="center"> 
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ourpromiselore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://drive.google.com/drive/folders/1NZzrNNeBVdOyZfIBEYXZQ12AEawxclCP" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
@@ -11,13 +11,18 @@
                           PLSSS IM SO SCARED I DONT HAVE ARTHIA'S BACK AND SIDE IM CRYING I NEED TO LOCK THE FFFF IN  also the wig arrive the styling is on December will probably arrive at January Riri wig bakery~ UPDATEEE !! So apparently we are going to baguio in January and my parents wants me to cosplay there Arthia cosplay is early than i expected BUTTT her original design is still on summer this is just the other au ima also bring venti coat for pictures
                            <p align="center">
                           <img width="500" alt="1000006801" src="https://github.com/user-attachments/assets/313ab3ef-a0ac-40b5-90ec-b4748ee08d91" />
+                                   <p align="center">
+                                           omg 😭🙏
                   <p align="center">
-                          <img width="600" alt="1000006781" src="https://github.com/user-attachments/assets/15fc76ba-ea36-4833-b703-f5a8512e00b0" />
-<img width="400" alt="1000006779" src="https://github.com/user-attachments/assets/161a5daf-321c-4982-90d6-2f61fdbc269a" />
-<img width="400" alt="1000006778" src="https://github.com/user-attachments/assets/b5cf6c5e-6dcb-460e-ae27-c8e23c5eb19f" />
-<img width="400" alt="1000006796" src="https://github.com/user-attachments/assets/2d96ba86-4be0-4e50-9e07-6bfa1fb63088" />
-<img width="400" alt="1000006797" src="https://github.com/user-attachments/assets/70434228-e191-41f0-9556-b15de5545ae2" />
-<img width="400" alt="1000006798" src="https://github.com/user-attachments/assets/5dfd4fd8-17e9-4f49-a34a-3d443eb8af7d" />
+                          <img width="400" alt="1000006828" src="https://github.com/user-attachments/assets/a5aa657a-9dd6-40ea-80f8-cd64a1489f46" />
+         <img width="400" alt="1000006823" src="https://github.com/user-attachments/assets/58320758-34d1-412a-a7ab-0a31debba9d0" />
+<img width="400" alt="1000006822" src="https://github.com/user-attachments/assets/6e53eb15-0dd2-41fe-9eee-69ef986a50fc" />
+<img width="400" alt="1000006829" src="https://github.com/user-attachments/assets/12361f72-a45c-4e81-a83d-3aebf68d37ba" /< 
+<img width="400" alt="1000006809" src="https://github.com/user-attachments/assets/98e95be0-07c5-4891-a68b-88b73a6dd171" />
+<img width="400" alt="1000006824" src="https://github.com/user-attachments/assets/3b496ed6-d48d-44eb-8a60-49bc807d9d3e" />
+<img width="400" alt="1000006825" src="https://github.com/user-attachments/assets/bbf483d0-70d8-4cc5-8f1e-49c000445fae" />
+                          <img width="400" alt="1000006778" src="https://github.com/user-attachments/assets/c558b674-a373-4ee0-8a13-648c20ae9923" />
+<img width="400" alt="1000006781" src="https://github.com/user-attachments/assets/5ad36585-df21-4158-88cb-d28da3a1e2c3" />
                           <p align="center">
                            <div align="center">
   <details>
