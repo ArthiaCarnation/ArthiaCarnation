@@ -1,12 +1,16 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ArthiaCarnation&color=fdcddf&style=flat-square&label=OurPromise)
 <p align="center"> 
-7000 / 5000 + 7500 
+8300 / 5000 + 7500 
 <p align="center"> 
         <a href="https://rentry.co/ArthiaValdren" target="[M]"<strong> 𝗔𝗥𝗧𝗛𝗜𝗔 </strong></a>  ノ   <a href="https://rentry.co/ourpromiselore" target="[M]"<strong> 𝗟𝗢𝗥𝗘 </strong></a>  ノ
  <a href="https://drive.google.com/drive/folders/1NZzrNNeBVdOyZfIBEYXZQ12AEawxclCP" target="[M]"<strong> 𝗔𝗥𝗧 𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗢𝗡 </strong></a>   ノ  <a href="https://primacyarthia.atabook.org/" target="[M]"<strong> 𝗔𝗧𝗔 </strong></a>  <p align="center">
       <a href="https://www.tiktok.com/@arthiaspromise" target="[M]" <strong> 𝗧𝗜𝗞𝗧𝗢𝗞 </strong></a> ノ <a href="https://www.facebook.com/arthiapromise" target="[M]"<strong> 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 </strong></a> ノ <a href="https://drive.google.com/drive/folders/1BbPtFN4f-3wiq_AaSDgJzmIRz5gnqE-T" target="[M]"<strong> 𝗧𝗢𝗠𝗢𝗗𝗔𝗖𝗛𝗜 </strong></a>  
           <p align="center">
   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312ms4jxtdqzufcqz77w3zj72dn4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=e665b0&interchange=false&profanity=false&hide_remaster=false&bar_color=ff99df&bar_color_cover=true" ![spotify-github-profile]> 
+                       <p align="center">
+                                <a href="https://github.com/3verLove" target="[M]"<strong> 3verLove</strong></a> Rex i have been friends with you for four years even like were busy all the time never expect you to come back and gift this to me undecided randomly and a late birthday gift you asked me how much was the prop for arthia cosplay and i thought you were talking about arthia sword arthia sword is only a extra prop for my cosplay and then when i came back after an hour you genuinely surpised me with this.. i cried to my sister that you sent me that much money and the way arthia whole floral outfit cost about 1k? you made my whole month i always have been cherishing you and that will never stop you are the first person who physically gifted me actual money to support my cosplay?? ill never let you down rex and the others who are supporting me in this cosplay journey i love you as my sister thank you so much again you are the sweetest and im one of the people whos so lucky to have this moment with you<333
+                        <p align="center">
+                                <img width="600" alt="L0F_zqLA" src="https://github.com/user-attachments/assets/6ee4744d-af21-4ac8-969a-27f2e54f6b64" />
                   <p align="center">
                           PLSSS IM SO SCARED I DONT HAVE ARTHIA'S BACK AND SIDE IM CRYING I NEED TO LOCK THE FFFF IN  also the wig arrive the styling is on December will probably arrive at January Riri wig bakery~ UPDATEEE !! So apparently we are going to baguio in January and my parents wants me to cosplay there Arthia cosplay is early than i expected BUTTT her original design is still on summer this is just the other au ima also bring venti coat for pictures
                            <p align="center">
