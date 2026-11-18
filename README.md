@@ -10,7 +10,7 @@
                   <p align="center"> 
                           Gifted By Miko — Art by Akiesha  " The loveliest blossom " THANK YOU SO MUCH MIKO IM SCREAMING 
                           <p align="center">
-                                  <img width="=800" alt="1000999770" src="https://github.com/user-attachments/assets/79ca5a43-b021-47d8-8ab1-907c47c647d3" />
+                                  <img width="600" alt="1000999770" src="https://github.com/user-attachments/assets/79ca5a43-b021-47d8-8ab1-907c47c647d3" />
                        <p align="center">
                                 <a href="https://github.com/3verLove" target="[M]"<strong> 3verLove</strong></a> Rex i have been friends with you for four years even like were busy all the time never expect you to come back and gift this to me undecided randomly and a late birthday gift you asked me how much was the prop for arthia cosplay and i thought you were talking about arthia sword arthia sword is only a extra prop for my cosplay and then when i came back after an hour you genuinely surpised me with this.. i cried to my sister that you sent me that much money and the way arthia whole floral outfit cost about 1k? you thought of the extra but you made the whole outfit for me. you made my whole month i always have been cherishing you and that will never stop you are the first person who physically gifted me actual money to support my cosplay?? ill never let you down rex and the others who are supporting me in this cosplay journey i love you as my sister thank you so much again you are the sweetest and im one of the people whos so lucky to have this moment with you<333
                         <p align="center">
