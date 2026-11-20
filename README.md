@@ -10,8 +10,8 @@
                       <p align="center"> 
                               I BOUGHT IT OMGGGG ILL SHOW CASE IT WHEN IT GETS HERE.... expect for the make up everything cost about 2800
                                 <p align="center"> 
-                              <img width="200" alt="Screenshot 2026-11-19 091809" src="https://github.com/user-attachments/assets/a429929d-9a99-4872-8697-3d27a4e9fc6b" />
-<img width="200" alt="Screenshot 2026-11-19 090203" src="https://github.com/user-attachments/assets/ab40d4af-5dc7-44ac-80b6-ec16ad1d33f6" />
+                              <img width="400" alt="Screenshot 2026-11-19 091809" src="https://github.com/user-attachments/assets/a429929d-9a99-4872-8697-3d27a4e9fc6b" />
+<img width="400" alt="Screenshot 2026-11-19 090203" src="https://github.com/user-attachments/assets/ab40d4af-5dc7-44ac-80b6-ec16ad1d33f6" />
                   <p align="center"> 
                           Gifted By Miko — Art by Akiesha  " The loveliest blossom " THANK YOU SO MUCH MIKO IM SCREAMING 
                           <p align="center">
