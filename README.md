@@ -8,10 +8,7 @@
           <p align="center">
   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312ms4jxtdqzufcqz77w3zj72dn4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=e665b0&interchange=false&profanity=false&hide_remaster=false&bar_color=ff99df&bar_color_cover=true" ![spotify-github-profile]> 
                       <p align="center"> 
-                              I BOUGHT IT OMGGGG ILL SHOW CASE IT WHEN IT GETS HERE.... expect for the make up everything cost about 2800
-                                <p align="center"> 
-                              <img width="400" alt="Screenshot 2026-11-19 091809" src="https://github.com/user-attachments/assets/a429929d-9a99-4872-8697-3d27a4e9fc6b" />
-<img width="400" alt="Screenshot 2026-11-19 090203" src="https://github.com/user-attachments/assets/ab40d4af-5dc7-44ac-80b6-ec16ad1d33f6" />
+                              THE SHOES ARRIVED AND OTHERS THEYLL MAKE THE WIG BY DECEMBER 6 🥺🥺 MY DRESS WILL ARRIVE NOV 30-DEC 1 AND ILL ORDER ALL MY MAKEUP UP BY DEC 12 
                   <p align="center"> 
                           Gifted By Miko — Art by Akiesha  " The loveliest blossom " THANK YOU SO MUCH MIKO IM SCREAMING 
                           <p align="center">
@@ -58,7 +55,8 @@ Eating : Protein in the morning ( eggs or bread sour dough or both ) , Lunch ( F
                                                                                           <p align="center">
                                                                                                   4 Week: im seeing the changes in my body heh i lost another 1kg
                                                                                                   <align="center">
-   5 week: My mom bought me a manual treadmill so I would have to go to the gym I'm so happy I worked this Saturday and did my workout in the afternoon my body hurts tho                                                                                     
+   5 week: My mom bought me a manual treadmill so I would have to go to the gym I'm so happy I worked this Saturday and did my workout in the afternoon my body hurts tho                                         <p align="center">
+6 week : I didn't get to workout more but I did in 30mins I don't know if I lose another kg                                  
          </details>           
           <p align="center">
                           Venthia Anniversary 11 / 06 / 26
