@@ -21,15 +21,6 @@
                           PLSSS IM SO SCARED I DONT HAVE ARTHIA'S BACK AND SIDE IM CRYING I NEED TO LOCK THE FFFF IN  also the wig arrive the styling is on December will probably arrive at January Riri wig bakery~ UPDATEEE !! So apparently we are going to baguio in January and my parents wants me to cosplay there Arthia cosplay is early than i expected BUTTT her original design is still on summer this is just the other au ima also bring venti coat for pictures
                            <p align="center">
                           <img width="500" alt="1000006801" src="https://github.com/user-attachments/assets/313ab3ef-a0ac-40b5-90ec-b4748ee08d91" />
-                                   <p align="center">
-                                           omg 😭🙏
-                  <p align="center">
-                          <img width="400" alt="1000006828" src="https://github.com/user-attachments/assets/a5aa657a-9dd6-40ea-80f8-cd64a1489f46" />
-         <img width="400" alt="1000006823" src="https://github.com/user-attachments/assets/58320758-34d1-412a-a7ab-0a31debba9d0" />
-<img width="400" alt="1000006822" src="https://github.com/user-attachments/assets/6e53eb15-0dd2-41fe-9eee-69ef986a50fc" />
-<img width="400" alt="1000006829" src="https://github.com/user-attachments/assets/12361f72-a45c-4e81-a83d-3aebf68d37ba" /< 
-<img width="400" alt="1000006781" src="https://github.com/user-attachments/assets/5ad36585-df21-4158-88cb-d28da3a1e2c3" />
-                          <p align="center">
                            <div align="center">
   <details>
 <summary>🍃🪷</summary>
