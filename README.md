@@ -8,7 +8,7 @@
           <p align="center">
   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312ms4jxtdqzufcqz77w3zj72dn4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=e665b0&interchange=false&profanity=false&hide_remaster=false&bar_color=ff99df&bar_color_cover=true" ![spotify-github-profile]> 
                    <p align="center"> 
-                           <img width="500" alt="Screenshot 2026-11-27 081905" src="https://github.com/user-attachments/assets/28a9be8f-9c64-4fb5-916e-0bf94aa41747" />
+                          <img width="700" alt="Screenshot 2026-11-27 081829" src="https://github.com/user-attachments/assets/d4d46658-aa7d-46e1-a2d5-e45533c819e7" />
                       <p align="center"> 
                               I bought all my makeup 🥺
                   <p align="center"> 
