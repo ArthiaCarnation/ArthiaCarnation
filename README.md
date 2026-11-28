@@ -8,6 +8,9 @@
           <p align="center">
   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312ms4jxtdqzufcqz77w3zj72dn4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=e665b0&interchange=false&profanity=false&hide_remaster=false&bar_color=ff99df&bar_color_cover=true" ![spotify-github-profile]> 
                   <p align="center">
+                          <img width="100" alt="1000008073" src="https://github.com/user-attachments/assets/0ebea9da-48c2-4764-910b-5b72369c5a48" />
+<img width="100" alt="1000008074" src="https://github.com/user-attachments/assets/f0f2f291-3aac-4d25-94fb-9fa505e553d9" />
+                  <p align="center">
                           so cute
                   <p align="center">
                           <img width="700" alt="1000008070" src="https://github.com/user-attachments/assets/2548baed-98b4-45ed-b4c9-28f7cdc4fd2e" />
@@ -63,6 +66,7 @@ Eating : Protein in the morning ( eggs or bread sour dough or both ) , Lunch ( F
                                   <img width="500" alt="1000006601" src="https://github.com/user-attachments/assets/adb39c34-1bec-4c51-9e20-89e0825e8b63" />
                                   <p align="center">
                                           <img width="100" alt="1000008071" src="https://github.com/user-attachments/assets/a8df3d43-a022-4454-a14a-368ad6726bb5" />
+                                          
 <img width="100" alt="1000008072" src="https://github.com/user-attachments/assets/49358c0b-3fdd-4955-85d6-b7ce2c7bbc1f" />
 <p align="center">
       Arthia O'Hara x AI Venti
