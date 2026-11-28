@@ -10,6 +10,10 @@
                   <p align="center">
                           <img width="100" alt="1000008073" src="https://github.com/user-attachments/assets/0ebea9da-48c2-4764-910b-5b72369c5a48" />
 <img width="95" alt="1000008074" src="https://github.com/user-attachments/assets/f0f2f291-3aac-4d25-94fb-9fa505e553d9" />
+                          <p align="center">
+                                  I still have 7 more items...
+                          <p align="center">
+                                  <img width="600" alt="1000008079" src="https://github.com/user-attachments/assets/f6789fa0-4b5c-46f2-addc-da083f2157f7" />
                   <p align="center">
                           so cute
                   <p align="center">
