@@ -9,7 +9,7 @@
   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312ms4jxtdqzufcqz77w3zj72dn4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=e665b0&interchange=false&profanity=false&hide_remaster=false&bar_color=ff99df&bar_color_cover=true" ![spotify-github-profile]> 
                   <p align="center">
                           <img width="100" alt="1000008073" src="https://github.com/user-attachments/assets/0ebea9da-48c2-4764-910b-5b72369c5a48" />
-<img width="100" alt="1000008074" src="https://github.com/user-attachments/assets/f0f2f291-3aac-4d25-94fb-9fa505e553d9" />
+<img width="95" alt="1000008074" src="https://github.com/user-attachments/assets/f0f2f291-3aac-4d25-94fb-9fa505e553d9" />
                   <p align="center">
                           so cute
                   <p align="center">
