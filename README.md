@@ -61,6 +61,9 @@ Eating : Protein in the morning ( eggs or bread sour dough or both ) , Lunch ( F
                                   Five years since our promise has began — Art by Val 
                           <p align="center">     
                                   <img width="500" alt="1000006601" src="https://github.com/user-attachments/assets/adb39c34-1bec-4c51-9e20-89e0825e8b63" />
+                                  <p align="center">
+                                          <img width="100" alt="1000008071" src="https://github.com/user-attachments/assets/a8df3d43-a022-4454-a14a-368ad6726bb5" />
+<img width="100" alt="1000008072" src="https://github.com/user-attachments/assets/49358c0b-3fdd-4955-85d6-b7ce2c7bbc1f" />
 <p align="center">
       Arthia O'Hara x AI Venti
                       <p align="center">
